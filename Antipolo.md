@@ -64,7 +64,7 @@ After politely excusing myself toward an older lady passing by, Maverick looked 
 
 Returning to the height strategy, Maverick would have already returned to his place, re-attaching the mask. Should a decision to check behind it come through, it would fall under the jurisdiction of the task master.
 
-After Maverick led the boys to the place of interest where the task master was, the task master present, Sprutnoa, said: "I will kill a piece of crappy ninny today if none of you do something with your life. Strike up." To clarify, "strike up" meant "going above and beyond expectations."
+After Maverick led the boys to the place of interest where the task master was, the task master present, Sprutnoa, said: "I will kill a piece of crappy ninny today if none of you do something with your life. Strike up!" To clarify, "strike up" meant "going above and beyond expectations."
 
 Afterwards, since they got the confirmation that it was time, Maverick and the other two boys left Notch before Sprutnoa noticed them.
 
@@ -74,7 +74,7 @@ At the moment, the first boy, Notch, finally introduced himself into the system 
 
 Later, during the journey, in an area where only a few passersby could be seen at the distance, the task master did show suspicion, but that was toward another laborer, who said "Hey, may—"
 
-"Shut it," said Sprutnoa, smirking as if he said the funniest thing. "Is that how you should be speaking to me? Know your place? Okay?" Furthermore, his voice was sarcastic, as if he was saying the most obvious thing. "If you really don't like the intentional mood, why don't take a understanding test and believe in yourself that this entire thing you're doing is a big fucking joke. It's actually... According to the hierarchy of things and knowledge, it is utterly pointless, and philsophically, it's stupid. You know, according to Mr. Soaks—the greatest philosopher of all time—it's like the most disgusting little ick. Heh? Just a little bang-bing-bung man waiting patiently to be destroyed, to be crushed by the real, awesome world where the awesome people take position and be awesome in the most awesome way. Look at your friends. They're cool! They got the skills to match up with their incredibly hateable personalities! They have the understanding of the entire world, isn't that right? But you? You are so incredibly smart too! You! So awesome and beautiful! Hahahaha! It's like I'm looking at me past self. Oh, wait...! I was like you. No. Even better. I was so awesome, more, more, more, more! I was better than you in every single way. Do you get me? Do you have the understanding that understanding getting me? That's so cool!" To repeat, he was being very sarcastic.
+"Shut it," said Sprutnoa, smirking as if he said the funniest thing. "Is that how you should be speaking to me? Know your place? Okay?" Furthermore, his voice was sarcastic, as if he was saying the most obvious thing. "If you really don't like the intentional mood, why don't take a understanding test and believe in yourself that this entire thing you're doing is a big fucking joke. It's actually... According to the hierarchy of things and knowledge, it is utterly pointless, and philsophically, it's stupid. You know, according to Mr. Soaks—the greatest philosopher of all time—it's like the most disgusting little ick. Heh? Just a little bang-bing-bung man waiting patiently to be destroyed, to be crushed by the real, awesome world where the awesome people take position and be awesome in the most awesome way. Look at your friends. They're cool! They got the skills to match up with their incredibly hateable personalities! They have the understanding of the entire world, isn't that right? But you? You are so incredibly smart too! You! So awesome and beautiful! Hahahaha! It's like I'm looking at me past self. Oh, wait...! I wasn't like you. No. Even better. I was so awesome, more, more, more, more! I was better than you in every single way. Do you get me? Do you have the understanding that understanding getting me? That's so cool!" To repeat, he was being very sarcastic.
 
 His face turned stone-faced, and his voice became deadpan. "Just shut up and move on, okay? I'm not answering any of your questions.
 
@@ -1475,7 +1475,7 @@ At the mines, where Goldberg arrived, Billy was taking off his clothes, feeling 
 With that said, Goldberg greeted and conversed with him anyway and the rest of the boy group. Later, he found some camaraderie, as he added that he should train them in battle. Overall, he was outstandingly professional when it came to his current task. This task only formally required him to protect these kids who were supposed to be miners or apprentice miners.
 
 Meanwhile, Billy imagined himself as a man of cool things with riches and stuff. This man was fat and had rings on his hand. He had a top hat and armor with cool clothes. He had a round body shape, and his legs were tiny. He wanted to be this cool.
-
+thousand giants
 So he grabbed some rocks and combined them together, imagining himself as this cool guy.
 
 A blast of magic flew from this rock, hitting the wall.
@@ -3389,7 +3389,7 @@ Nathaniel continued, "What are your ages? Back from the same order. Do it again 
 
 "16."
 
-"14."
+"18."
 
 "14."
 
@@ -3399,7 +3399,7 @@ Nathaniel continued, "What are your ages? Back from the same order. Do it again 
 
 "17."
 
-"16."
+"19."
 
 "17."
 
@@ -5307,7 +5307,7 @@ Notch did have it easy, and he was improving a lot. But the last few weeks had b
 But things were going smoothly. It had only been one month, and much had changed. But this was good for him.
 
 He mined quickly, smashing several rocks before grabbing the remains.
- 
+
 He didn't really hate it, and BIlly's new skills and spells were helpful as well. But he and the rest of the apprentice miners all had inherent magic since Goldberg and Milly's attempt at stimulating them safely. People could die if exposed to too much mana in a dangerously concentrated amount of time.
 
 Things were going smoothly. He just had to bear it, but the memories and faces of the 48 apprentice miners who had died wore him down, leaving him naked with fear at times. But Nathaniel had been the binding force that led them together through difficult times, even guiding them to the darkest areas of the cave. But now, they were much more confident, even approaching eye-singers to baiting them into adventurers' arms. Indeed, they were being tasked with acting as bait for the adventurers in order to "test and train" them according to them.
@@ -5579,5 +5579,3 @@ In the end, everyone was still navigating a world; it could be said that not too
 Author note:
 
 This chapter marks the end of a 10-chapter introduction (chapter 32 to 41) to the second arc. It was intentional that the introduction was more so of consolidation and cohesion-building with its vignette or snippet-scene style and day-by-day overview of the city through the perspectives of the main character per chapter style. The next chapters after that will be a lot more ambitious, involving more in-depth exploration and detail, even more so than the first arc, each chapter consisting of 25,000 words average. This means that this story will no longer be published everyday, but every week.
-
-
