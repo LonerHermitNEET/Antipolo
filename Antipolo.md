@@ -694,110 +694,125 @@ All in good fun, whether for trolls or adventurers, the exertion of power was ju
 # Chapter 5 - Echoes of Formative Days: A Prelude to Labor and Leadership
 
 
-On the other side of the coin, the next morning greeted Notch, Shadrach, Millie, and Billy with a soft whisper: "Wake up!"
+Viewed through a poetic lens, the eye-singers flew like angels in the sky, pulling apart and down golden strings of heavenly honor floating in zero gravity. They were like singers at a choir, wafting humanizing elements into the hearts of tied, stuck gray figures symbolizing humankind.
 
-It was day 3, which was 72 hours, 4,320 minutes, or 259,200 seconds.
+Moving on to the monsters' physical elements, the eye-singers were birds whose chirps made eyes burn.
 
-The "Wake up!" voice belonged to the mining operation leader, Leroy. His smile was almost blinding: he knew that he finally found his most loyal members.
+Two, the danderlions were tall bipedal beasts like trolls but with flowers and grass growing all over them at fast rates to the point that they often woke up in a great pile of vegetation if other animals didn't clean the vegetation off them.
 
-He was sure that anyone he could feed his delicious food and accomodate in terms of housing had the potential to become loyal trustees of a wide range of tasks, roles, and situations.
+Three, the batbogs were toed bats with wings that they used as extra prehensile appendages.
 
-Lying and embracing each other on the futon-like bed on the floor, the brothers were surprised to see the woman lying with her head directly on the floor with zero bedding.
+Finally, the dynamic between these monsters was that of a reliance on the magical qualities of the lushness inside the cave. Sunlight and oxygen entered the cave through magical means, and air was magically clean and fresh. Rather than being cramped and static, the cave diversified magically and naturally, resulting expansions and contractions of earth everywhere in varying degrees of influence.
 
-After a short discussion about bedding and comfort, everyone returned to the mining operation site.
+Shifting focus to the moment, the adventurers stood around, sharing lots of conversations in various groups, many people cross-talking.
 
-Even though Leroy looked tired, he was poised to address issues where applicable, serving like a task master toward his miners without the detention and whipping. To address safety concerns, he regularly hired guards for himself. Though, he would rather rely on his instincts whether to hire or not. So, he sometimes forwent having guards. When he did have guards, he made sure they were hiding somewhere nearby. This made it so that anyone who dared approached him approached him with the risk of having their life cut short. This risk was why the woman was particular about physically stepping carefully and being generally ladylike toward her co-workers, peers, and bosses, especially the aged businessman in a cautiously isolated field of work. In other words, Leroy was likely seasoned in dealing with matters related to self-defence, confrontation, and rebellion.
+One conversation involved four siblings and eight friends with a median age of 12 years old. As part of an adventurer group, they were forced to carry sacks in the journey. Exploring these sacks, they contained rocks, tools, monsters or their flesh, mana stones, spare gear and equipment, and many other items. Advancing to a more functional level, they helped with many menial tasks such as stacking items, buying food and other expendable resources, and moving and cleaning large magical artifacts, gears, and equipment by hand. Simultaneously, they traveled long distances uphill, through urban streets and rough terrain, and downhill on surefooted foot. In essence, these preteens and teenagers were in the heart of their formative stages, only evolving in their collaborative, cognitive, and physical competence overtime.
 
-His expression, despite calm and almost like a man with a wife and six kids, made the aforementioned woman stop walking when he glanced at her wrinkles in a curious but overall courteous manner.
+On a more inclusive note, they were the blueprint for the great horror of becoming a powerful adult full of great influence. Yet, their potentials extended wider, uniquely, comprehensively, and into more specializations.
 
-From Leroy's perspective, ten hundred steps was enough for him to engage his leg muscles, as he was constantly in need of exercise due to his age. If he wanted to become stronger, he would have to work more times as hard compared to someone as young as Millie who was still in her twenties. In the end, he could only walk so far before he started using an adjutant to handle orders and information. He already knew how crucial it was to handle things far away from the site, so he returned home and relied on just his words and his trust in his reliable adjutants to communicate information effectively.
+Speaking of potential, not knowing who they were, they would do what they couldn't do, becoming more than they were now, envisioning greatness more than they could see. Great power awaited them, power beyond anything they could imagine.
 
-Now that Leroy was absent, Millie relaxed, concentrating on the boys again, who were offering suggestions for their appearances. The boys were wondering whether a red tunic of the task master they saw yesterday was an excellent choice for looking cool. After all, they were still boys aged 13, 14, and 18. Billy was the one aged 18 ironically.
+Returning to their conversation, it was lively and amicable.
 
-By the time they finished their discussion, the miners took a break, sitting weirdly with their feet on their seats, massaging between their toes like a bunch of hobos. They almost looked like kings in their personal homes, which made Shadrach approach and interface them, with the other two boys and Millie sauntering closely behind.
+"I only have—I'm poor. I only have sixty-five pesos.
 
-While Shadrach did his new thing, Leroy was busy lounging in his small but serviceable home, taking a deep breath. Meanwhile, he was adjacent to his wife, who was busy sitting down on a chair and sleeping.
+"To unbox a chest and earn godly weapons."
 
-Speaking of their relationship, they were very intimate with each other in an almost inextricable way, as in intimate even without constant romantic expressions.
+"Hi."
 
-Meanwhile, Leroy was also very attentive to the bell noise hanging outside his window because that was the signal that his messengers used.
+"Oh my gosh, who's that, who's that, who's that!"
 
-When the bell rung, a message line ran all the way through the city, into the wilderness, and to the mining operation site. There, the message, like an explosion, rippled across the miners, as they gathered in various spots and targeted certain spots for maximum efficacy. As for why changing spots was even necessary, the cave was confusing, similar to a beast that kept moving around because it was full of unknowns. Anytime it seemed that a certain part of it was defenceless, effort was spent into ensuring that that this part was assaulted. However, the beast constantly changed and moved, and all its unknowns seemed to lie as well, making up falsehoods to the frustration of miners. This was why it was essential that the miners were flexible in their focus.
+"Oh my goodness."
 
-This was why it was crucial for direction, and Leroy was the man for the job.
+"You'll never get it."
 
-The job felt a sense of fulfillment at the end of morning and the start of the afternoon.
+"I heard eye, I heard eye, I heard eye."
 
-The smell of tropical heat flew like colorful flowers in the wind or like a spring that chokes out the negative energies of a person. So the miners moved outside to get some shade and air, as their throats were already itching at their limits.
+"It's, it's, it's, it's the... it's the guy. It's the guy with the red and black checkered shirt and paper hat as a head. Doglist, man, doglist. Why are they flying?"
 
-A cacophony of coughs marked the start of their break, as they could finally express in some way their struggle and effort.
+"That? That? That?"
 
-Shadrach was most elucidated by this complexity, as he was most concentrated. But the heat said enough to declare to the other two boys and Millie that this was painstaking. With enough cloth to wrap and cover their heads, the miners easily inspired the boys to do the same, sharing a moment of cultural connection.
+Many conversations like this went on and on for hours. This was normal due to the adventurers' close-knit setting. This was despite the fact that adventurers could die. With that said, close-knit conversations like this never made sense outside context, and the amount of inside jokes here was so deep that even the people involved sometimes forgot the context and found it funny anyway.
 
-Because of the weight of this complexity and the heat, Shadrach felt that he was disappearing and re-assembling himself constantly.
+Revisiting the monsters and the magical lush cave, they made the adventurers that much more systematic, methodical, and rigorous in their behavior when facing the cave environment, which contrasted with their irreverent personalities in everyday environments. Moreover, since the cave was very dark and had dangerous terrain, the adventurers were using light magic to maintain their eyes' habituation to the sunlight and clear up the darkness.
 
-Because it was a struggle, he was failing to re-assemble himself, often repeating the whole process.
+One of the monsters stopped in front of the adventurers innocently, presenting an opportunity for one adventurer group to intervene and help, despite the fact that the adventurers violently intruded into their natural habitat.
 
-After what felt like an hour, he woke up and found himself alone in the middle of the forest in front of the entrance to the mining operation site.
+This interaction was in line with the adventurers' goals of preparing and entering fiercely and then relaxing afterwards. So whatever happened was the adventurer parties either leaving the cave, exploring it, resting inside and having a picnic, and standing around and waiting for other groups to leave alongside them, among others. The adventurers showed great flexibility even in large groups, but that was partly because their military strength was excessive.
 
-He bolted inside, noticing Millie strutting behind him in the distance outside.
+Meanwhile, the boys and Millie were waiting patiently, taking a backseat, as the miners stopped their operations in case of an incident involving the adventurers.
 
-Behind her, an army of adventurers were clammoring, raising their voices.
+Even though the fortifications were still broken and only patched up with the limited skills of the miners, they were satisfied.
 
-"We did it!"
+As soon as the adventurer groups began to leave and the miners who guided the adventurers and the miners who stayed reunited, it was already night.
 
-"Let's go!"
+Millie was glad that today was slow, because she needed to be there to help fight monsters in the night. So she retired and said goodbye to the boys, which left the boys disappointed and lost.
 
-"Alright!"
+The world was so fast, and their influence on the past events was minimal even though the mining operation leader Leroy seemed to trust them.
 
-With the way they jumped around, walked, and raised their voices, they were like wasps misidentifying the unique patterns on the faces of fellow colony members and preparing to charge them.
+After complaining about their day, they decided to go home and see if Leroy called them again.
 
-It was a gathering of various adventurer parties, but the problem was that they were planning to enter the caves and locate the goblins there. This was very risky, but the adventurers knew that the goblins were "nasty raiders," or so the officials said.
+Since they were absent the next day, Leroy thought they quit, but he decided to send a messenger to them just in case. This was on day 4.
 
-The hype that the goblin attack garnered looked excessive, only serving to waste the money of the contractors of the adventurers. Yet, the contractors were sure that this was a good opportunity to strike.
+When the boys got the message asking them why they were absent, they told the messenger that Leroy was silent yesterday about what they should do, which left them confused and lost. Even Millie's silence on the issue left them unmotivated.
 
-So the adventurers forced their way into the mining operation site to find the goblins through the holes they made. The problem was that the holes were already filled up, so the adventurers decided to move away fortifications. If they were too stuck, they broke them apart. They were going to create holes just to find the goblins. This was like soldiers occupying houses during an enemy siege.
+So they thought they should just return to everyday labor, even if it was boring and humiliating.
 
-The adventurers truly loved the chaos they brought, even smirking and swaggering in the faces of the miners. Most of them were adults, yet they acted like reckless teenagers with lots of money to waste.
+But Leroy's messenger assured them that he was willing to give them a second chance and even give them an exciting job this time, so the boys accepted.
 
-When one of the miners advanced to speak up, they fortunately only blocked him. It could have evolved into that of the outspoken laborer during Maverick's plan with the boys.
+In contrast to his supportive attitude toward the boys, Leroy was furious about the adventurers, but he kept silent yesterday because officials told him to keep his hands off and stay away from his own mining operation site. He thought these officials were stupid because he would have helped them out for a price. Their inconsistency in their treatment toward the adventurers was appalling to him. Why did they express that they would address the adventurer hegemony by cutting funding, penalizing anticompetitive behavior, enforcing regulatory oversight, promoting market diversification, and supporting new entrants to the mining community? Rumors among his fellows even circulated of whistleblowers getting offed secretly. But at the same time, they showed times where they were capable of putting down groups who were unfairly taxing local businesses.
 
-Shifting to the political and social realm, many loudmouth adventurers regarded laborers like villager miners, traders, and farmers as zombies who waste their time working menial jobs because they're too afraid to take risks and succeed, seeing them as ambitionless losers.
+"What a joke!"
 
-Pivoting to a more complex level, a fantastical magical society put magic and magic-related resources such as potions, skills, tamed monsters, and enchanted equipment into the hands of users without specialized magic or even technical knowledge, thereby empowering these individuals with the benefits and opportunities of the technology. This resulted in brazenness and the ability to act violently on impulses, both of which would be otherwise absent.
+In the end, he might be no better, hiring the boys since they were cost-effective but also resembled his own desperation when he was younger. He was an altruistic person, but it often came at the cost of his business, which was why he risked his life everyday in such an isolated, risky field of work. But it was true that these kids were more than just the result of his charity and the desperate situation he was in with the attack of the goblins. They were street smart, agile, had the potential to be skilled if they kept coming to work, and provided unique perspectives that he was willing to embrace.
 
-Bringing it down to a miner detachment's perspective, they offered to guide the adventurers for a price, and many adventurers accepted. But these adventurers paid multiple times over instead of choosing to haggle for a lower price. They cared too much about appearances to benefit without paying, so they secretly arranged for other adventurers to benefit while forgoing payment by just telling them to follow those who did pay. This was contradictory behavior in the eyes of the miners, who already expected the adventurers to do the secret arrangement. This was a sign of the complex ways people interact and cause misunderstandings due to ignorance, being impromptu, apathy, callousness, and maintaining a certain image, among others.
+So the boys would be joining hundreds of other boys like them shortly at a particular site. This time, he would be transparent regarding the operation and how they could contribute and be promoted. But it was essential that they came into the operation with disappointed expectations. This way, he could grab the most willing individuals. He was unconventional in his hiring decisions that way. But he was only one of many "biting heads" or pillars of the industry, which meant that he was risking his neck just to get "juicy" or high-value laborers, since he often liked to feign vulnerability, disingenuous but rational and innovative. His rationale came from the lack of more objective measures or hiring criteria, among other reasons, especially considering that magic potential was so random and lopsided.
 
-However, the miners had little confidence in exploring the caves themselves, so the adventurers served as a more ignorant comparison that distracted from the miners' infinitesimal analytical knowledge of the caves. So this was a lucrative deal for the miners built on convincing presentation.
+So the readily available kids represented a consistent labor supply but also the rare possibility of one of them being "epic loot" in terms of magical prowess. This put a game-like gambling element to his hiring decisions. This was a typical concern, as it was often linked to kids whose rare magical potential a company realized quitting these same companies and becoming adventurers due to a lack of established loyalty. So he was already engendering his own method of ingraining faithfulness into his laborers, even addressing them as members as if in a community or family. Yet, he had good intentions, relying on empathy to make all of this function.
 
-Finally, the miners put little effort and already managed to uphold the confirmation to their boss that they were valuable members.
+When the three boys Billy, Shadrach, and Notch arrived, they saw Millie standing near over a hundred of boys gathered and conversing noisily.
 
-While they traversed the cave, Billy, Shadrach, Millie, and Notch watched the miners who remained fix the fortifications that the adventurers broke.
+Since Leroy invited the three boys so earnestly, the boys got their parents to join them and even some friends. In fact, they brought eighteen people in total, which was outside Leroy's expectations, forcing him to arrange a feast before an orientation instead of an orientation before a feast. He expected them to be hungrier, since people in the lower classes often forwent lunch and walked by foot, taking longer routes to avoid the short ones that the freemen or those high-born took.
 
-Meanwhile, the loose army of adventurers quadrisected themselves. Afterwards, they trisected themselves and bisected recusively until their smallest units consisted of two individuals at least.
+Once the more than a hundred boys arrived, it was always joke time, and they were throwing jokes and laughing like a bunch of archers desperately shooting at their enemies in a siege.
 
-Investigating their skill set, they unleashed themselves in an structured and organized matter. One division consisted of powerful artillery units who utilized specialized intensive magic that relied on gathered intelligence in order to hit targets. Namely, these included magic like [Choke], which relied on aligning very loose and hard-to-control particles. This makes it a specialty of users who have devoted years of effort into learning how to control these particles to form in a way that allows for [Choke] to occur. So often times, the users of this magic stay far away and rely on information to launch precise attacks, since they had to release control of their bodies to concentrate on their magic. In conclusion, they cradled precision and control as hard as they could.
+In the background, providing solace to the boys, the sound of the wind and the hundreds of laborers that only wanted to get back to their own sufficient worlds married, resulting in a bouquet of hope.
 
-Turning to something grim, the monsters imagined themselves as children frolicking in the sunset, their hideous expressions replacing that of children. They wanted to be free, but what was known to be great and happy was not something that their faces and body could ever adorn. They were stuck in a shield of soon-to-be-bodies.
+The boys gathered together, forgetting the memories of the smell of urban waste, finding ceasefire in their dynamics just for a moment. They were all on the same side, facing the great Leroy. But each moment was a test to their patience and incompatibility with each other, arising from the growing tensions of coming of age. They would soon recognize their unique power to change uniquely their circumstances and seize self-expression. They would survive the new age (their era) and supercede the leaders of a generation ago.
 
-What felt like hundreds of pain and suffering became turned to dust, the meaning of their lives soiled like wet rags in a desert mound. "Too late," said a cracking voice in it. If rage could speak, it would embrace them.
+Within their highly complex, magically communicative, urban society full of economic and social disparities, some of them might recognize themselves on the side of naturally emerging counterculture movements.
 
-Once the cave turned into hellfire, the monsters were thrown to one corner, their eyes and faces full of fear, trembling with their hands on their knees and their arms adjacent to their bodies. Lying next to a body, one of them imagined a bird flowing through the air and waving the tip of its wings with a fresh smell of cinammon and spices before he, too, passed from the river of life.
+The war on monsters would only help promote cultural debate.
 
-"It's only natural," said monster scouts hiding in a cavity in the cave, the owners of these smiles, in a sarcastic tone. "This is what you deserve." Instead of standing up for their monster brothers and sisters, they beat their self-respect to a pulp, threw chairs at it, bit it apart limb by limb, flooded it with their tears, and screamed at it in confusion before they escaped, letting the adventurers keep getting away with it. Maybe, they also felt that they, as monsters, did deserve to die because they were too weak to stand up for themselves and do something instead of watching their siblings suffer helplessly and cry and beg under the oppression of those hypocrites who preached goodness and moral maturity. Indeed, there was no way that monsters deserved to die. Ultimately, they would prepare to enlighten the humans to overthrow the adventurers.
+As for the boys' connection to adventurers as both "outsiders" of society, Considering how free they were in expressing themselves upon their society and world, the adventurers to whom these boys looked up as rebels were, arguably, on the side of the status quo, debuting as humble regular people who became empowered as the voice of the people. The amount of power these adventurers held in changing the world aligned more with a hegenomy than that of "vigilantes fighting against corruption". Their biting sarcasm and sensational straightforwardness only made them more relatable and trustworthy than those bureaucrats who fussed too much about "due process" in criminal proceedings, pocketing taxes, and systematizing policies.
 
-Scrutinizing the social divide between monsters, the affluent monsters dared oppress and mock the poor, washing their hands with their the liquid they use to wash their bright faces of purity, incessantly complaining about whether the path where tens of thousands travelled and where they arbitrarily walked was perfectly even and tailored to their individual wants. Even so, they dared behave like lapdogs toward the humans who treated them as inferiors. They hated their own people. How dare they? The worst part about them was how out of touch they were with what was normal.
+Though, the adventurers were a broad category, and the argument that they were a hegenomy and on the side of the status quo was based on the words of certain reporters, thinktanks, and public intellectuals or figures, among others, rather than that of the entire city outside the adventurer sphere.
 
-As a final consideration, the monsters would represent an all-consuming fire. Then, they would be condemned by people who spent an everyday laborer's year's wages on toys.
+Despite the complexity of society, the boys felt a bond stronger than any shadow to each other, even if it would only last a "lifetime" of 6 years.
 
-From the perspective of the adventurers, these monsters included fresh "batbogs", delicious "danderlions", and delicate "eye-singers". But the Marchacha goblins were absent from what these adventurers could see.
+Today, the boys occupied several roles and considerations: moving several bags from point A to point B, having an interconnection between several subgroups between the boys to compensate for the the dividing nature of the land topography, an interplay of various roles that occupy the "tweening" or in-betweens of the flow of the operation, the consideration of the health of each boys by various appointed "health inspectors", the three-buddy system of three boys in one bag-carrying group, among others, and food being the least concern since the boys were expected to be more hardy in respect to their more physically promising background and age. As for why it was the three-buddy system rather than the more commonly heard two-buddy system, it was much more easier to detect power dynamics from afar when three people were involved than if it was "balanced" with only two. A four-buddy system would only make things undesirably "balanced" again, and a five-buddy system was excessive in number for the purpose of the system in the first place.
 
-As a counterpoint to the monster scouts' social commentary, the adventurers had to protect humans, even with all the issues. It was either the monsters or the humans. Sure, humans could be evil, but that didn't make monsters innocent. If the monsters were the one on top, they would be doing the same if not worse. A compromise between monsters and humans would only be possible if monsters could centralize and stop each other from killing humans. Humans were doing everything they could to safeguard the safety, which often was the status quo, losing many honorable adventurers in the process. It was up to very awesome people to advance the human race beyond the status quo. In sum, the adventurers' job was maintaining stability and, by extension, the safety of people living slow, comfortable lives rather than disjointed, erratic ones.
+Leroy was the architect of this complexity, but it was like breathing and sleeping to him. Oh, he loved sleeping and seeing people do it, and that was for his age (nearing 50 years old) as well.
 
-All in good fun, whether for trolls or adventurers, the exertion of power was just that simple.
+This was a political move on the chess board, as even 1,000 bottom-rung people were as noisy as a flock of geese having a feud. But first and foremost, he was a business magnate and investor. He shaped energy and environmental policies, but apart from his other political activities, to which he referred as "minor" in a dialectical discussion, he held no political office. His actions broke boundaries, as the money thing that businesses cared about, economics, predicted offices.
+
+Meanwhile, the boys, the health inspectors, the new "enforcers" that Leroy had appointed from the group, and Leroy were finally done with their food, concluding the feast. With the roles given selectively to the boys during the feast, the orientation would detail their roles.
+
+Then, they would easily find themselves getting to productive, fulfilling work in no time. They only needed someone to tell them what to do, following like a kind and patient guide. Leroy was too busy and easily tired to do that, so he had the enforcers work together with the health inspectors, who then became the sub-messengers in the hierarchy that included Leroy's inner circle of messengers.
+
+As for Millie, she was obviously an enforcer, and she was not the only woman or girl there. In particular, several other women were present, being former soldiers. Millie was an exception, being the youngest and the only one who relied on her military police father's guidance on combat rather than on formal soldiery.
+
+The boys were having a rough time trying to escape the eyes of the "enforcers" that Leroy appointed from the group. Now, they were just hoping for bread, just one. They only needed one bite.
+
+When it comes to their plan, they wanted to establish first intelligence of the other boy subgroups. If they could know where they were headed and how they were planning to do it—whether defensive, aggressive, fast, slow, big, or soft—they would be able to make decisions much more precisely. Of course, they were casual about it, speaking in terms that they used when playing children's games as stemming from a background coincident with marginalized homeless day laborer groups.
+
+Leroy was observant, so he immediately sorted the group's dynamics before the boys started to recognize underlying patterns in his operation. If he wanted them to succeed on the first try, he would let them, but he wanted to see them flexibly try, which meant managing frustration and learning how to stay emotionally intelligent both intra- and inter-personally. The productive aspect was dependent on this.
+
+This was antagonistic toward the success of the operation, but this was his final test. He was the king of tests, and he would make sure that they experienced life's suffering first hand—to prepare them for what was coming ahead.
+
+The death of Maverick and that of his associate laborers were more than just elements of a tragic accident on the papers. It could have been prevented through beast-centric pilot facilities, test environments, and places of creative expression of skill, and Billy, Shadrach, and Notch could have lived more normal lives. But there was always room for improvement. They would strive, until they could become the managers.
 
 # Chapter 6 - Embracing Emancipation
-
 
 From the boys' perspective, the tension was brewing like a pot left on the fire. The time was ticking, and they were beginning to lose sweat. Sweat was beginning to expire, and their patience too. What came next was their words becoming strung along with negativity. They started spewing words of antipathy. They would grab their fellow and evoke annoyed expressions of malice. They should not, but they did because they were unable to release their tensions. They were still young teenagers, but they had to grow, even if they emphasized they were adulting. They would not sit idly and watch their fellows suffer; they would stand up and represent themselves upon this world. They would manifest their destinies in this land. Their friends and families would know that they were themselves. They would claw their way to the city heights.
 
@@ -5579,3 +5594,1339 @@ In the end, everyone was still navigating a world; it could be said that not too
 Author note:
 
 This chapter marks the end of a 10-chapter introduction (chapter 32 to 41) to the second arc. It was intentional that the introduction was more so of consolidation and cohesion-building with its vignette or snippet-scene style and day-by-day overview of the city through the perspectives of the main character per chapter style. The next chapters after that will be a lot more ambitious, involving more in-depth exploration and detail, even more so than the first arc, each chapter consisting of 25,000 words average. This means that this story will no longer be published everyday, but every week.
+
+
+# Chapter 42
+
+Author's Note:
+
+Okay, for anyone coming in later, I just realized I had a duplicate of chapter 4 in chapter 5. I might have made a mistake while copying it onto Royalroad. So now, the actual chapter 5 is up. I apologize for the inconvenience. I appreciate your understanding.
+
+
+When it came to the idea of visions, one adventurer saw a bright light shining in the horizon. As for what it meant, it said: "An army is coming." Regarding his response, he used a sense that this light was guiding him as a promise of good luck. And this vision was real. In conclusion, he contrasted the everyday adventurer who wanted to return home and procure a fresh drink.
+
+Transitioning to a figurative note, the sun rushed down upon the earth, its flashing lights accumulating through the fissures, chasms, and crevices of the cloth fabric of a tent like sediment. 
+
+In an incidental snapshot, within this tent, an older man's buttocks weighed heavily against a flat wooden-chair, the seat of which was hastily nailed, so the man could still feel the gaps between the planks and the nails and irregularities on the chair. 
+
+Continuing the figurativeness with a blend between it and realism, a young woman' fingers fiddled with papers as heavy as rocks, her legs and back pressing neatly against her seat, her hands manipulating the papers' rotations and positions. With a heavy head, her eyes shot over the pile of papers lying below her on a makeshift table; her posture encroaching like a spider entrapping a rod; her shoulders stretching endlessly to make up for the unsuitability of her setup with her body shape. Thirdly, the curtains of the tent flapped against several chests resolutely moved to the edges; the lingering musty and muddy smell a consequence of their intermittent across-the-camp transportation, as the tent was part of a camp. 
+
+In another incidental snapshot, it was also attached to a nearby road leading to a city, so crates and wagons hailed from there. 
+
+Either way, the loud taste of bread danced along the tips of a chair, a chest, and a group of boxes being haggled along by the surface of a trolling wagon. Fifthly, the sunny buttons on men's dresses pressed to and fro like a rowing paddler on a seaside trip. The smell of fresh waters pushed farther and farther up, reaching the hair covers of men's noses and zooming right up inside. Sixthly, the rubbing of fresh seeds rinsing and bathing themselves with water on the pond and the nearby dewy vegetation and leaves scratched a man's ear. Seventhly, the flowery pots made their way downtown, riding a wagon, a gift from the men to their families back home. Eighthly, The sight of fresh reds upon the sunset and idyllic greens of nature combined like knights reunited. Ninthly, the balance of the road trembled as various undulations dug themselves into the green road, withdrawing and releasing the feet of men. Lastly, the gravel and screes yelled in friendly greeting whenever the feet of men shook them.
+
+Diverging into a more grounded camp conversion, in a space between several tents, several adventurers spoke, watching the silence. "Where's Matteo?"
+
+Matteo was hiding in the corner of a bush, his arms resting against his hips, his head lowered, his face still, his mind at ease. Entering into his mind, he noticed that none of the adventurers truly spoke; they only engaged their environment in words. He wondered if this world was fake, and everything he knew wasn't real.
+
+But maybe he was wrong.
+
+Reapproaching reality, the adventurers found him, their gazes wandering by and testing his resolve.
+
+He had been hiding away from the lights, from the people, and from the expectations placed upon him. But now he was, returned to this order of hierarchical life—not freedom of aloneness but freedom characterized by a sense of purpose.
+
+Matteo didn't know what was going to happen. It was just an ordinary day. Nothing had to change. He just wanted to relax and have fun. And he was already struggling as it was. He just needed to relax. Nothing was going to happen.
+
+Drifting away from these people and visiting the perspective of the man inside the tent earlier, he was Goldberg. He sat down on a chair, his lips curled with slight disappointment, determination, and a sense of purpose and place, placing a notepad on a desk. 
+
+As he began to relax, he absentmindedly noticed the scratches, cracks, and grooves on the wooden surface of the many sides the desk visually contained. 
+
+Each imperfection indicated a rich history beyond his years and understanding and memories that never seemed to end; a humanity, personalities upon personalities—humanities upon humanities. 
+
+It stimulated his five senses. First, the sound of his finger brushing and scratching lightly against the wooden surface glimpsed paper, feather, and leather, among other reminiscent materials found on a desk. Second, the bitter taste of wood hailing from memories of biting it as a child appeared on his tongue, leaving a strange aftertaste of emotional raucousness. Third, the texture of both the touch and sound of rubbing his fingers and palms together cast doubt on the idea that he was himself. Fourth, when he made two fingers posture outward with one finger pressing against a nail from the top and another pushing it from the bottom, forming a circular hole, he released the pressure, and it gave him two sensations: a quiet, crisp sound of release and the softened edge of the hard, clean texture of his fingernail after the skin of his thumb rubbed across it. Fifth, he rubbed the folds on the back of his fingers like he did when he was a child, studying the overlapping quality of these folds like armies tied together hanging from the spearhead of a leader. Sixth, the smell of intense street food outside saw the vivid past scenes of patience, hunger, and thirst at many places and events. Seventh, the scale of a tent and how much space his earlier self had playing around while his mother and father focused on work loomed over him. Eighth, numerous people walked outside into his view. He now perceived outside as a place to travel through and not as the magical vastness that he didn't understand yet as a child. Maybe, now, he was still learning. Ninth, whenever his hands touched a quill, he found himself delicately tickling himself with the edges of those feathers. Tenth, he remembered the simple scribbles he did on papers and how often he explored things by drawing them and writing them down, without really understanding the broader decades-long firsthand context of what they meant and could mean. Eleventh, he visualized how it affected his understanding of the world and how every idea became succinct in this focused environment and process. Twelfth, he remembered the thousands of memories of living through this world and how they wrapped up everything while leaving him with a sense of incompletion and disjointedness. These were all things he did and experienced as a growing and learning child. And this was only the tip of the iceberg. All those experiences existed in a tucked-away chest waiting to be opened with the sound of gold jingling. Or maybe they were everywhere in the universe, never to be comprehended again.
+
+Returning to reality, he left the tent he was in and looked outside, seeing a large army in the distance.
+
+"What is point of this?" he said. "Can we end this fight? 
+
+"Why do we each have to fight? 
+
+"Can we not just be friends? In another life, could we have been friends? 
+
+"Please... tell me... where do these memories go? 
+
+"The potential friendships and memories we could have made. 
+
+"The connections that are left wandering through the hollow rooms and the places and areas and beautiful forests that only seek after that sense that maybe there was someone there—a couple of people together, a group, a mass, a community, a love, a life. People together. Are we seriously going to lose this again and again? Tell me... am I going to have to bear this again and again?"
+
+He didn't want to do this anymore.
+
+After having lost, Goldberg felt that it was only right to try again, his fingers wrapping around his quill with will power.
+
+Eventually, at the later battle, he raised his sword formally, while goblins swarmed about, their feet carving the earth and distilling the mud with the sweat dripping down them. They giggled ravenously.
+
+"I am the Demolisher," Goldberg then said, the angels embracing his arms and becoming their wings.
+
+When the goblins approached close enough, he, within range, slashed and sliced before dragging his blade through the earth as a gesture of greatness. His mud-laden sword was smacked against the goblins, dousing them with mud and blinding them with a dots of brown as scattered as a scree of stones.
+
+From the goblins' side, they struck back at him, arrows falling from their bows, flashes of fiery energy bursting out, reflecting transformations and magical awakenings. They were gaining in numerical advantage.
+
+In response, Goldberg gravelly, guttural voice pummeled: "You will not live through this!" He motivated himself first and foremost before releasing the hunting blade.
+
+Automatically, he slashed and removed their heads by splintering their shields, armor, helmets, and neck skin. He pierced these neck skins open into two halves, letting blood taste the blade edge. The sword drank the blood in multiple fulls before flying across the rest of their bodies and turning them askew too.
+
+In the meantime, the goblins stayed behind, raging upon the trees and screeching, while Goldberg advanced forth, raising his hand and mocking them with an offensive gesture.
+
+He launched himself into the fray, breaking and splitting through thick and padded cloth before tapping the bodies. "I am the individual!" he said, retaining a sense of self amid the chaos of the past events.
+
+As soon as he came close enough, the goblins grabbed his blade and pushed it away, distancing themselves. They kept the pressure, discouraging the adventurers' formations' integrity with multi-target magical attacks.
+
+Even after being pushed back, Goldberg slashed them again and again, spinning, whirling along, his sword dashing in perfect synchrony around his arms and through the grasps of his hands in agreement with his arms' motions. It was tender and delicate, but the end result was devastation.
+
+Eventually, however, the goblins put pressure on him, alerting Goldberg to retreat and avoid a direct confrontation for now.
+
+But Goldberg couldn't retreat. Instead, he adapted by dragging his blade against the mud before spraying it against the goblins, giving them pause.
+
+Then, he span his sword, getting momentum.
+
+Now that he had space to move, he chose to retreat, his blade drawing an arc along behind him, as he dragged it back into control.
+
+Simultaneously, from the side, a goblin leapt out, which Goldberg smashed into the ground like an insect before he proceeded running.
+
+As the goblins neared and began attacking him, Goldberg ultimately fell to the earth, having exhausted himself.
+
+From the distance, blasts of magic flew, striking several goblins and freezing them where they choked to death rapidly.
+
+The goblins were armed, running about, the blasts flying and darting upon them. They dodged and avoided it, their forces shifting and churning in formation. They soon came upon a stop, growing slower as time ticked toward the end.
+
+Reinforcements had come.
+
+Suddenly, Goldberg raised his hand. "Let this be the day of vengeance!" Hundreds came following his lead, and he dashed forward, swirling and making a wave across them.
+
+He danced upon Northe Road, moving around, shaking. His hands stretched out and then rotated in a loop. His hands bounced from left to right. He made a wave with his arms, alternating between left and right in a specific pattern: 1-1-2-1-1-2. He raised his head above himself and lowered himself to the ground, bending his knees before standing back up again. He spun around, whirling his arms around, kicking his legs to the back. He began striding in place and swinging his arms in an exaggerated manner, dancing. 
+
+Heavenly might fell upon his arms, his hands flying with clumsy spills, his arm growing in proportion to his faith in this process. Magical particles blessed the swords of the humans, as their arms flew out.
+
+On impact, Goblins fell apart and combusted, exploding in bones, blood, and brain matter.
+
+The first line of goblins were gone, so the rest of the goblins retreated to regroup, sweat dripping down their temples, chin, shoulders, and bellies. Their heart was stuck between life and shock; very energetic.
+
+The goblins began meditating, calling upon the rainy season wind, a gentle breeze rustling through leaves and across grass, accompanied by the soft patter of raindrops on various surfaces.
+
+They wanted to live through this, but they wanted to claim the reward of an adventurer's death.
+
+Goldberg's army kept charging.
+
+However, one of the goblins that stared at Goldberg said, his voice magically intensified in strength: "Do you sincerely believe that we haven't prepared for the likes of you? Or the likes of this battle? We do not wage a useless war. We do not fight on the terms of a need for violence or a need to give you a reputation. We fight because we know our strengths, and those goblins who have given their lives? They were our oldest, and they have chosen to give up their lives to be turned undead and to throw their lives to convince your friends to come. That is why we have won."
+
+The air grew thick with magical fog, as Goldberg and all his allies suddenly fell unconscious.
+
+The goblin who had spoken was a simple-looking goblin named "Roots." He was one of John Roger's new goblin men, as he wanted to establish a paramilitary force outside the state.
+
+Incidentally, if Goldberg was awake, he would have grinned sarcastically at himself and said: "Okay then... Okay then..." 
+
+Anyway, Roots stared, the silence consuming him and everything around him.
+
+He disappeared, and he reappeared as a human being. He could shapeshift, and he was not really a goblin. That was why John Roger hired him. He was an adventurer who helped goblins get in and out of the barriers, but he was originally an adventurer who spied on goblins. But things had changed, and now he was helping the goblins.
+
+Moving to the background and the rest of the goblins, the heat burned the earth, sweat dripping heavily and rapidly.
+
+The goblins wanted to flee from the sun.
+
+But it beamed its rays with hatred. It would not let go, declaring ownership of them.
+
+The adventurers, including Goldberg, were dumped into wagons and dragged away.
+
+Goldberg's still face conveyed the disappointment and nihilistic feelings he would have felt if he was awake and seeing this scene.
+
+Returning to Roots, he rubbed his face with the side of his hand, tired of the itches on his face.
+
+He gritted his teeth and rode the wagon, standing on one of the unconscious lying adventurers' body.
+
+Similarly, the goblins were all standing on the bodies, creating a strange, surreal scene as many wagons carrying the same lying bodies and group of standing goblins magically rode in a single direction up the hilly slopes from different starting points within a single area.
+
+They disappeared, blending with time and the landscape.
+
+The city was still in a state of recovery, and the goblins were already acting with impunity.
+
+Later, elsewhere, in front of a large fort, the wagon-riding goblins got down, saying hi, waving, greeting with gestures.
+
+The fort accepted them, gates opening.
+
+Within the fort, goblins were surrounding various stalls in variedly designed sections of the fort; this place serving more like a small town corner with segmented stall blocks and nicely fitted dirt roads, many layers of society clumped together in a single unit of community. First, anonymous goblin mages wearing hooded tunics that covered their whole body save for their hands walked around in threes. Second, kids trained in the art of producing potions followed wagons and said hi to the travelers and returners, their hands still black with potion-making magic side effects. Third, giant golems were being lassoed and dragged along, their forms making no damage when touching the buildings due to the weakening magical effect established upon their strength, their lassoers little goblins who were tossed into special chambers that maximized their [Capturing] stat, a particular attribute within their status page that allowed them to tame golems and control them. Fourth, tall goblins were raising ornaments, being thousands of bird remains clipped into shapes, upon lines across the town as part of a magical effect controlling how much the goblins urinated. Basically, it made it so that they didn't have to urinate as much by converting their urine into odorless air as a buff. Fifth, goblins who were lying on the road were checking the goblins walking by. Due to a certain magic, they couldn't move their body much, only being able to lie down. But the benefit was that anybody that walked near them were immediately magically assessed for their health, wellbeing, and for any negative effects. If anything was wrong with them, they would begin to glow to show another group of goblins that they had to be sent to a room for healing. Sixth, the goblins were constantly affected with a spell that made their healing twice as strong, but it also came at the cost of sucking a third of the mana of all goblins within the fort. It was clear that a fort had this spell when it had a monster statue in the middle.
+
+Soon, transitioning to Goldberg, he woke up in a jail cell, hundreds of adventurers lined up in a line at his left in similar cells.
+
+The goblins were immediately there as soon as he woke up, placing cups and plates for them to eat in before they dumped slop on their plates.
+
+Goldberg was confused, because he was expecting to be tortured.
+
+He ate it up and told his fellow adventurers to be careful about casting magic, because they might have set up some form of anti-magic or trigger to kill the caster.
+
+One of the fellow adventurers, after being pressured to do so, cast magic, and a large hammer appeared out of thin air and smashed him to death.
+
+Goldberg didn't understand this.
+
+It didn't make sense for this sequence of events to unfold.
+
+He was just relaxing in the corner of a room, and all of a sudden, he was here.
+
+He tried to get out, because he felt that this was all a farce—a  joke.
+
+It wasn't supposed to be this way. When did things go wrong? He was just relaxing, and all of a sudden, Evernight and Saddest died. All of a sudden, a large army was in front of him, and he was told to be present because the goblins were being arrogant again. "What is happening?"
+
+But he was here in prison.
+
+He realized that the goblin's system of integrating adventurers into their territory was swift, clean, and natural to them, while disorienting, sudden, and disjointed in the adventurers' eyes.
+
+The goblins immediately placed wards and other forms of tracking their opponents in the area. They also added various goblins to keep watch in case. They assembled portals in which the goblins could go from their hiding spots to a safe distance outside the fort. They made sure to place various barriers maintained by magical artifacts all around the location where they got Goldberg.
+
+They were much more prepared and mechanized.
+
+The goblins had artifacts that Goldberg's group was not aware of, because many adventurers tended to avoid smaller and weaker dungeons due to their easy and the lengthy duration it took to go through and finish them. But the goblins grabbed the scraps and soon found themselves at an advantage due to their every-nook-and-cranny approach, one that focused on the minor details and strategic points, resulting in an insiduous progression toward superiority in this area. However, the adventurers could eliminate them easily; however, Goldberg was surprised twice. He made the same mistake, thinking that simply a larger force would fix the issue. The goblins punished their mistakes, using guerilla warfare and loose and unorganized control with a focus on the the unknown dungeons and control points.
+
+In the end, Goldberg was defeated.
+
+In the meantime, one of the adventurers with him, Jashuki, as a former intelligence officer, didn't understand why the hell the adventurer system coordinated by the city didn't provide contingencies for this kind of goblin threat. Was it not compatible with the current methodologies with regard to adventuring and adventurer-adjacent theory available? How did the goblin incident not get flagged beforehand? Were the detectors (intelligence gatherers), both literal and framework-wise, not comprehensive enough to dampen the attack's impact? However, he recognized that the response mechanisms which involved their arrival as reinforcements for the Goldberg were rudimentary and that sooner or later, the effective lack of resources and manpower instrumentalized by the Just attack would prove to be a detriment. Naturally, with weakened and exhausted power, the complexity of the interposed mechanisms underlying prevention (defence) would revisit basics proportionally, but that didn't free the relevant leaders from liability.
+
+The city was very vulnerable; in fact, the entire region was likely similarly so, if concerns like these couldn't be handled. That meant the goblins were growing their metaphorical explosive shrooms in their backyard in plain sight without anyone noticing at all. The goblins had to be immediately punished, and the influence, encompassing ideology, philosophy, intelligence, skill, visual signatures, and leaders, that led to this incident had to be removed.
+
+While Jashuki continued to recall details, Goldberg raised his hand to reach the ceiling as he leaned against the bars, looking like he ate several rocks initially as a dare and then actually swallowed them, getting the tummy achies.
+
+He wanted to go back to watching tournament games and taking his time off just reading books. He had never read books, but Priscilla did. And he was so bored he might actually do it.
+
+But to be honest, he was using the word "bored" because he was concerned about getting tortured or being killed. But the goblins didn't look too mean.
+
+He was downplaying the situation, he knew.
+
+Simultaneously, the situation outside was demanding, each goblin being expected to continue down the path of optimal functioning. But goblins were given breaks; that was why comfort and familiarity was a fundamental aspect of its foundation.
+
+If Goldberg was aware of this, he would find it very difficult not to respect them. He had a slight aversion to trolls after the 48-casualty incident, but when it came to goblins, he saw them as very dangerous animals that needed to be put down immediately. If he saw them like this, he would hesitate.
+
+Suddenly, despite Jashuki only leaving his strategic intelligence in his head, he was dragged out of his cage. After they informed him that he would be used to help direct their forces in an upcoming fight with soldiers, Jashuki's eyes were wide as saucers. When did they know? Did they know? Was it a lucky guess? Were they actually killing him?
+
+The goblins put him in an open tent where a large group of organized formally dressed goblins were standing, considering Jashuki's expertise.
+
+Jashuki's face was pale. How did they get access to his files?
+
+He knew strategy and how to arrange a draft with counters and overall composition well, and if he was asked to, he could easily give orders in minute detail within an active dynamic battlefield.
+
+"So... which one among these actually produce an effect?"
+
+"An effect..." he said contemplatively. He saw a very, very obvious arrangement on the map. They used magically floating cards as a way to identify different units, so he got big information on their forces. And the map was very minute in scope, so he didn't know the location shown.
+
+He pointed at a particular path and said that depending on how competent the units were, they could reach optimal route within 5 or 6 minutes, allowing them to deny the enemy flank positioning and magical set-up advantage due to the increased mana present in that section. This was simplified, but if he knew the exact methods, resources, and equipment used, then he would make a more accurate assessment.
+
+"So that's how powerful your forces are."
+
+Jashuki's mouth shook very slightly with shock.
+
+The commander continued, "We wouldn't be able to do this without your... Shroud."
+
+Jashuki furrowed his brows to hide his surprise. He made that earlier strategic conclusion assuming that Shroud was a fundamental part of a battlefield; however, he didn't take into account the possibility that some goblin tribes or groups weren't able to harness the Shroud.
+
+The commander concluded, "Why don't we take your Rasudy on that same route then, since that's likely where your Rasudi is located."
+
+Jashuki didn't know how to explain anything to suggest otherwise. He had revealed his cards by mistake, helping them finish up the process of elimination. He wanted to show off his knowledge without revealing anything earlier, but he failed.
+
+He shut himself down emotionally and mentally, waiting for them to move on.
+
+Soon, the goblin commander caught the adventurers off guard by targeting the Rasudi, a particular buff structure that empowered the adventurers, raining down arrows at the desperate, scattered adventurers that had planned on collapsing where they expected the goblin main force would be. It wasn't just the Rasudi.
+
+To simplify, the goblins had 5 main forces.
+
+To explore in detail, several of them were more typical infantry soldiers intended to help scatter fire and make it harder for the enemy to muster a focused gaze. This way, they could help put together teams positioned around the flanks behind the groves of trees. It was slower, but they were terrain-specialized soldiers. Several hundred mana stones were arranged for continuous fire to put a stand-in in the fight before the main troops collapsed around the middle. It was expected that they would both have mana stones to channel a barrage of magic from. However, this was also layered with special considerations on the adventurers' part; such as a spell that could create trenches almost instantly, a spell that could make tens of soldiers invisible, and a spell that could break open a line of troops by making them fall unconscious with little to no way of stopping it, bypassing projectile-directed magical shields. But even in close quarters combat, there were master fighters like Jashuti, a man who could bring ten opponents down if he was given a line of opponents, which forced enemies to separate very loosely while taking cover from sudden barrages or close quarters magical and physical projectile shots if necessary. People like Jashuti could stall the whole fight and allow those whom a slower pace benefitted to execute their plans faster, forcing the entire battlefield into making riskier decisions and where they began dying in the numbers.
+
+It could get more complicated than that, as the fight happened in multiple angles and levels of awareness, with those moving closer to their strategic locations losing time rapidly and gaining more desperation as their life-or-death situation zoomed nearer.
+
+The commander was not at all worried, as Jashuki himself revealed much about the adventurers that he didn't know, leaving most of the fight happening quickly.
+
+For a double-sided ambush done with a noticeable distance of separation between goblins and adventurers, the goblins used the Rasudi again after disabling it because they knew that it had a temporary effect of intense slowness on the adventurers. Even if it buffed the adventurers, they used it to finish off the adventurers and keep them in suspended position while they were bombarded with charges. The slowness and buff affected the goblins as well now that they were within range upon its turning-on, but the goblin charges were advantaged due to the adventurers' in-progress regrouping as an awkward formation. Moreover, the goblins were specialized with dashing skills that ignored slowness effects, but the adventurers were varied in composition, with different specializations shoulder-to-shoulder, resulting in their quick, front-to-back defeat.
+
+Rasudi were immediately lowered down, put down, and disassembled. Their point here was to make sure that its buffs were disabled as soon as possible. They could just use magic to deactivate it, but doing it this way made it much faster.
+
+When they reached the area where the Rasudi was earlier, it was a remote place, so they had lots of time to prepare and disassemble it.
+
+Ultimately, they won.
+
+Highlights included the time they used the Rasudi to kill a large group of adventurers; the time they killed Jashuti, a *remote-lane bruiser* ("a durable fighter who dealt consistent damage and excelled in close quarters combat, intended to be independent and self-sufficient in isolation as a duelist in one-on-one confrontations"), by pitting him within an intersection of several trenches using the trench-making spell and then surprising him by crowding him with goblins that were already headed in his direction anyway during a moment when the adventurers had their focus on what they perceived to be a very vulnerable main force; and the time they left a side of the main force vulnerable to catch them off guard with hidden flanks, the hints of which were downplayed. This fake vulnerability was layered with a double circular formation meant to scoop up the invisible adventurers and preclude the spell that made a line of targets fall unconscious. The caster for this spell was killed before he could find an effective timing to use it.
+
+When it came to the adventurers' perspective, they wanted to get the goblins quickly because they were 99% sure the goblins were regrouping after disabling the Rasudi. They didn't expect the goblins to be much more aggressive and actually sending it.
+
+They started the fight laying out the soldiers with a more defensible position, focusing on taking over the goblins side through layering a few primary positions and blocking flanks with well-placed dynamic actors. This way, they could focus a barrage of spells and destroy the enemies by usurping wide-scale control and advantage immediately. Pushing enemies to their defences and forcing them to regroup at their defences was their goal because it was easier for them to siege a single target than to have the enemies chip away at their force through drawing them in. Instead, they would force the goblins to retreat to their defences, giving them zero time to draw them into unfavorable positions when they owned the land by that point. Furthermore, the adventurers couldn't have the Rasudi at the primary positions because that made it obvious where it was, so they placed it at a distant spot. They also made sure their resources were separate and compartmentalized through different forces. The route that the goblins took was highly defensible, especially with the Shroud spell that made soldiers invisible in areas of smoke. But that was why they left it with little forces, only propping up a fake appearance of invulnerability. However, they did leave the Shroud spell caster with them because they expected the goblins to send a small group down the route anyway. They didn't expect the goblin main force to go through that route, given the typical blitzkrieg close quarters approach assumed from adventurers.
+
+However, what ended happening was that their goal of making the goblins regroup became their disaster, and they didn't expect the goblins to reach the Rasudi that they had tucked far away from their primary arms of attack. It wasn't too far, so they immediately went there even if they were a little unorganized. But they hadn't expected the goblins to be so fast.  If the adventurers relied on their most defensible positions before the blitzkrieg approach, they would have shut down the goblins immediately. But the goblins had pivotal info on them.
+
+When they suddenly started losing, their goal was to stay back and look to re-engage them in favorable positions and angles, but the fight was long lost, having lost their key players.
+
+This ended their streak of plans and left them on the dust.
+
+The goblin pressed their advantage by moving into the outposts; they didn't have forts positioned here. And the fortified hill they did have only had soldiers who were not used to goblins, since adventurers were the ones who dealt with them the most.
+
+Goblins marched forward, breaking land and crushing the tempo the soldiers sacrificed. The soldiers had intended to catch the goblins by overstaying and get even better tempo, but the goblins were used to these kinds of tactics, very wary of even the minor details being a minor species with minor forces themselves who only had the trivial things to keep them company.
+
+The city began alerting the barracks.
+
+Nameless was right, but he was wrong about the timing, just like the soldiers were.
+
+The adventurers were being armed again; instead of using a typical army formation, they used a modular approach, each module a coalition, because they were used to coalitions rather than a unit even more complex and larger than them.
+
+The city was being dared to fall.
+
+The goblins were a tidal wave, their forces a diverse and multifaceted as their comprehensive experience as detail-finders and low-crawlers. It was ingrained into the psyche—the advantage that they now held over the city since the Just attack and the provisional loss of defensibility with recovery initiatives.
+
+The city was taunted to fall.
+
+Later, back in his cell, Goldberg stared, saying, "What is happening..."
+
+After Goldberg was brought outside, he saw smoke in the distance.
+
+"Huh?"
+
+Nearby, a goblin guard looked at him and provoked him: "You humans are so hard-headed. 
+
+"You think you control everything. You talk of freedom and adventure.
+
+"You have no clue what you don't know. You arrogance and complacency will be your downfall."
+
+Goldberg shook his head instinctively.
+
+A group of goblin guards began mocking him in spades.
+
+They were young and wanted something perfect to rally behind—a sense of purpose, a sense of place, and a sense of identity in a chaotic world that they were still taking years to accept, amid the disillusionment—so Goldberg didn't find it unusual. He used to be like that.
+
+He used to care about the individual, but his idealisms had taken a backseat because he had to deal with details and work. But he still felt that inside. It was just dormant.
+
+The mocking goblins reminded him of what it was like to believe in something enough that one would do anything to defend it and fight for it in the face of opposition, ostracism, and persecution.
+
+But that kind of thinking led to complicated real-life situations that left people complacent due to the challenges of maintaining a sense of self through the burden of the everyday, unappreciated struggle. But maybe he did feel strongly about things, but right now, he was still processing things.
+
+Goldberg was not like this usually. 
+
+This was not who he was, or at least who he knew himself to be. But this was who he was now amid who he had been.
+
+It was like he was a child again, when everything was knew—
+
+Antipolo City had fallen.
+
+The interplay of complacency and genuine belief in an idea, that being a city, overshadowed the practicalities of actual defensibility, both in intangible and tangible domains.
+
+Goldberg didn't want this, but reality was often not what he thought it looked like. No one thought Antipolo could reach this low before the Just attack, but the Just attack had woken them up and made them realize that they weren't the invulnerable city-state they thought they were. But it was only exacerbated by the proactivity of the goblins in their newfound advantage over the city. 
+
+Once "Antipolo would never fall!" was declared in the high places and in the mid and lower brackets of society, it was over—complacency had taken root. But it wasn't just complacency. They really didn't have the means to handle the Just attack, and it was unavoidable. And the goblins could be considered unavoidable as well as a consequence of their current weakened state. In fact, it didn't have to be a matter of complacency, but of risk and reward.
+
+Either way, the nobles were imprisoned.
+
+The thing about the goblins' plan was that they didn't execute every combatant in their way, making their war a step more defensible. Moreover, they made the transfer of power smooth by focusing on elevating the side of the humans that shared an aversion toward the adventurers, which, in this case, was the New Adventurers. They relied on this shared aversion to transition to a new state where these adventurer-hating humans were the new rulers. The goblins had only wanted to neuter the aggressiveness of this country represented by the extreme New Adventurers. In other words, they formed a more peace-oriented state by removing the aggressive faction. They didn't care if the goblin-tolerant faction was significantly less skilled, organized, and able to uphold stable and fair governance, they only cared that it wasn't anti-Goblin. 
+
+Soon enough, Billy stared, hearing the sounds of a goblin soldier walking by. The adventurer friends of their trainer were dead, and the trainer himself was relocated to another role after they discovered his connections with the adventurers.
+
+It was because everything had no closure and were in the middle of things that the goblin attack was so good.
+
+Shifting to a desolate, metaphorical tone, Billy sat down, waving his hand back on forth, his heart beating slowly. His mind dancing with joy, he leapt, flying over the wall and becoming askew, an intangible form within his imagination. He saw the scale of change, and he saw the weight of the world floating farther and farther away from him. He rescinded his world-contacting limbs into himself. He removed the world from his mind, and he saw a great large area with the largest buildings only small things at the horizon. He danced and fell apart structurally, his soul becoming nonsensical. He read the books and found words that didn't match his world. He fell away, becoming liquid, streaming down the road, his hair streaming back all the while, his thoughts streaming in. He became water.
+
+Drips of rainwater poured, callously beating against the earth, forming piles of mud. The greatness of the world disassembled itself and formed new rules and meanings until nothing was sensible and everything was inconsiderate of everything except itself.
+
+Large buildings loomed, but all around was an empty mountainous landscape. Hundreds of years worth of memories streaming to nothingness; he laughed profusely, grating against the ears, jarring his spirit, turning him into a masseur of his own recovering soul.
+
+He flew apart and became anew, each moment a strike against the thunderous earth where thunderstorms raged on to no end. He drifted away from all that, becoming ascended at an natural forested elevation. He climbed the hill, his heart pumping endlessly. He crashed to the valleys. He read the markings on the ground.
+
+He danced until he dropped.
+
+The world became ice, and he froze in its touch, picking up clumsily a small trinket which he held close against the sleeves that covered his hands, wrists, and arms. He held it against the sweat, as the heat poured inside. He sweated from his forehead, temples, shoulders, armpits, and sides of the belly. His back was the most sweaty. He walked out, away from the visual noise of his background.
+
+The environment strung him along, beating him and lashing at him to move on.
+
+He walked idly with a clumsy alternating half-step. He soldiered on.
+
+The night poured like rain, furnishing his eyes until they were refined. He saw the figure of the goblins, but they were people who had always been there.
+
+He envisioned a new reality, and it was not so.
+
+He gradually disassembled himself, coalescing the only things that made sense into the internal chambers protected by the outer layers of these different parts of him. This way, he was sensible; though, it came at the cost of spending time in mindfulness and reflection for hours, even amid his duties.
+
+His hands moved automatically.
+
+But his world inwardly shown.
+
+Moving on to a more ambitious and urgent level, elsewhere, in the meantime, Shadrach began writing down notes with rapidity, slashing words upon the paper, crashing and burning words to permanence. He indefinitely poured his agency again and again until he mustered saluting text behind the battlements of word-art-creation—a definition of power.
+
+He moved forward, raising his arm and clasping his hand into a fist. He was addicted to the grind, gnashing his teeth with determination.
+
+The goblins clapped and awarded him, slowly putting him in various positions to interconnect various sections of their governance in the mining category. They placed colored banners upon his shoulders, imbuing him with agency and grace. He closed his eyes, a grin hidden at the bottom level of his face. He read their words and understood their intentions, and he was uplifted slowly and gradually above the masses. His agency was consummated.
+
+He grabbed words and threw them aside, as his mouth spat commands that determined the positioning and role delegation and resource allocation with respect to his fellow humans. He knew that the goblins' support would be ending a few months from now, so he maximized his grasp upon their offers of adjustment and "conquering the new land." This was his chance to reach the heights. He would become an agent of swiftness.
+
+Zooming into Notch, he finished a few day jobs before he got back home. It was a boring day, but he would pretty much eat the scraps and focus on getting back to speed with everyone if that was even possible. He needed some form of opportunity, and with the removal of the adventurers, he had no urgent rush. He only had menial day jobs, especially given that the city was still recovering and focused on cleaning up and returning to streamlined process, which took some risk sometimes but overall was a simple basic two-handed tools like pickaxes.
+
+One day, on one on many days, in a similar manner to Billy, he woke up, glancing outside through the window; several kids played around him, their limbs flying through the air, their movements complex like nodes in a point-by-point system. Beat-by-beat sensations energized his standing up, his heart dispersing into the winds.
+
+He went outside. The sky was bright, lonesome, and forlorn, ragged, a warm patina in his eyes; his fingertips seeking out flesh, his movements forward yet purposeful. A life beyond his form tethered him to the earth; a lovely tone shut up the dissonance of the new era.
+
+He knew that this was the loss of more than a hundred years.
+
+He sat down and tasted the earth with his skin, the hairs sensing the death all around. Cultures fell in response to stimulation, but new ones arose to replace them. Ideas became more nuanced, but their origins eluded the people. He hid within a ball-like form.
+
+He walked outside, dots coloring the horizon like a painting, words collapsing into dust, flying voices married the shared vibe of this environment. Cursed violent thoughts were distant now; there where the memories lay.
+
+He dissipated, his form becoming accursed. He hopped like a frog, his mouth opening and closing like heaven's gates. He clasped his arm as he haggardly moved, stuck in suspended animation—a loop of the idle walking stride. He became transparent.
+
+He soon became an after-image, imprinted on the scope of this world. He was no longer Notch but a blend of people, a representation of the common man and a never-ending tiresome journey unto death.
+
+The silence was bequeathed to him.
+
+He fell away like a figure magically turned to sand as part of an elaborate magical attack. He drifted then.
+
+The sand particles that made him up crawled on the rainforest ground, climbing the mountainous steps of staircases, the looming statuesque figures of regular humans too hard to climb.
+
+The image of separation; the bifurcation of his spiritual nature; and the combination of death and life became apparent in this child's eyes.
+
+He saw the 48 late apprentice miners and understood only a little bit more about what it meant to die.
+
+He was 14 years old, but only the idea presented itself, never the reality and experience of it sandwiched between an infinity of layers. The world had never felt so real or surreal.
+
+He fell to the earth, remembering thousands of years before being blocked by his age. He was limited, even now, and even if he had experienced a lot, he still hadn't truly processed things with a mature perspective. That would be gradually bequeathed to him with the passing of time.
+
+He nodded with an introspective look.
+
+He flew from tip to tip in his mind—a mountain range that provided access to millions of data, items, and information.
+
+He fell to the ground, where his hands pounded against the beating of the moment.
+
+He engaged in the act of work, not a single drop of fleshy humanity in the scene. He had lost his edge.
+
+He was a dull refrain.
+
+Moving on to a more ambitious note, John Roger stood in front of a large crowd, as he assembled his troops, running away.
+
+The goblins were chasing like flies, catching spells and mitigating almost all damage with spells of their own.
+
+John sent out soldiers for them to zone the goblins out, but he intended to making sure that their sacrifices were worth it. He commanded adventurers to look for an ambush.
+
+They had overstayed a bit, but they didn't know that the place was secretly warded, which meant that the goblins could see them.
+
+They had gotten caught laying a trap from afar through magical vision in the form of warding.
+
+After they managed to push back and escape, John immediately called for diplomatic negotiations, hoping to truce this away.
+
+John was able to agree on a deal to sell his artifacts with a contract that didn't allow them or their allies to harm them. This was impossible to invalidate, because any loop holes was ignored by the god who oversaw the agreement between the two parties.
+
+John was confused why the goblins agreed, but he guessed that this was a good time to focus up and get things together. 
+
+The past events happened quickly and with great precision of impact. From the perspective of an hypothetical outsider, first, a man named Goldberg sat on a tent, observing details around him with his senses on a figurative note. Second, a man named "Matteo" hid from adventurer friends, questioning reality. His friends found him. Third, Goldberg prepared for battle against goblins, reflecting on past experiences fighting them. Fourth, he led an army to attack the goblins but was outwitted and defeated by a shapeshifting goblin named Roots. Fifth, Goldberg and other adventurers were imprisoned by the goblins in a fort town. Sixth, the goblins employed an adventurer named Jashuki to help strategize against the city's army. Seventh, the goblins launched a decisive attack, using intelligence from Jashuki to ambush and defeat the city's army. Eighth, the city fell to the goblins. Goldberg pondered the situation. Ninth, a young adult named Billy had an existential experience in the aftermath. Tenth, a boy named Shadrach was promoted by the goblins to a governing position over mining. Eleventh, a young man named Notch tried to adjust to the new goblin-ruled city. Lastly, an noble named John Roger battled the goblins but was forced to negotiate a deal with them.
+
+These past events epitomized the experiences of the city in the last month, with John's negotiation happening on the last week of the second month after Maverick died (AMD)—2 months AMD.
+
+Falling back to the moment, Billy rode a wagon, riding through the streets of the city.
+
+The world had long changed since they first came to mining, and nothing about this world was clear. It was all one big puddle stitched together, with so many people seeking control and power, not a single person really ruling everything, but everyone had felt like they were the center of the world at one point. Billy had his time, and now that was over. Now, he was taking rest in the idle life of the world this city crafted.
+
+It was like if someone drew many lines on a piece of paper from random directions again and again until the paper itself was soft-black in color and one could see the lines forming complicated structures, shapes, networks, complexes, ideas, and cities. This abstract art was what the world was like.
+
+He noticed a young woman sitting down, wondering what she was up to.
+
+In the end, he minded his own business, and her life disappeared like puffs of smoke in his world. She was just a bystander, but to her, her real world was vast enough that if she traveled thousands of miles across it, she would never reach the end. If it was imagination, it would repeat again and again, never able to match reality in its endlessness and nature as a gaping hole. This was the limitation of mundane imagination compared to the grand endless complexities of real life—the wet muddy ground contrasting the heights of vastness.
+
+Nonetheless, she sat down, becoming swallowed by her environment.
+
+Billy tried his best to maintain himself. The idea to become everything was a common theme among adventurers, so being close with them, he was influenced into pondering that ideal. Individuality reliant on a world of invalidations, categorizations, and polarization only lent to a loss of the self.
+
+He tried his best to exist as who he was and not as who his experiences told him to be.
+
+He was malleable and changeable yet incorruptible in his undying pursuit of his own self-realization.
+
+He was human.
+
+He sat down and embraced the ground, his heart pumping blood against the pavement, his soul wrapped with cloth, his skin sweaty with blackened burns. His eyes looked upon the sky, the sky beating him with a metal blunt weapon. His arms reaching out in obedience, the sky commanded him to obey only himself. 
+
+The metallic taste in his lips pressed upon him to wake up and move on.
+
+He stood still, walking gradually faster until he was in a sprint, his feet dangling behind him, his legs stomping against the ground, his arms bolting before his breath, his breath swallowing the air and puffing it out like bellows, his skin eating up air and creating speed.
+
+He stopped at an adventurer guild, joining them as one of their own, holding a pickaxe, as he was tasked to mine while the other members of his new adventurer party fought monsters.
+
+Goldberg did not stand behind him, but Billy was strongly alone.
+
+He attacked the rock, casting spells upon it again and again.
+
+He didn't want to remove himself manically from progress, so he cast out spells like a bat screamed in the night.
+
+He was trying to create progress.
+
+He struck it like a man eating ravenously blessed meat from a holy shrine.
+
+The rocks broke down gradually, making gravel. But he was unable to create the finest sand.
+
+It didn't matter though. What mattered was that he was progressing, albeit slowly.
+
+He got up and returned to the mining training, finishing the last few days.
+
+After that, he was done.
+
+He went down to a cave and kept mining, relying on adventurers to help him.
+
+He didn't know what he was doing, but he was contributing to a larger world.
+
+Goblins stood in front of him, not as enemies, but as superiors.
+
+They told him to match their pace with the rest of their goblin miners, saying that they were so weak they couldn't match the goblins.
+
+They knew that the humans were stronger than they were, but they still felt superior in many other aspects, which made the humans feel like a waste of talent who just used all of that power toward destroying what was right in front of them.
+
+Earlier, when it came to the goblin takeover, there were other monsters in the region, but none of them agreed to helping the goblins fight the humans, as they felt that the humans had secret weapons, having been so castrated in the past that they couldn't even recognize the opportunity once the Just attacked.
+
+The funny part was that a strong military human force was still outside hunting down goblins. They only realized recently that their human city was already gone. 
+
+For context, this military force included Nameless and Ethan.
+
+Simply and truthfully, the goblins only played the advantage, punishing the humans for their significant mistakes. They won fair and square.
+
+But as with anything, a simple game of strategy might have won them the fight, but it didn't guarantee them the long-staying advantage. That had to be fostered, maintained, and cultivated, mitigating the effects of disruption and a lack of experience and skill when it came to handling the human city on the goblins' part.
+
+Exploring the goblins' impact on the humans from a heavily abstract angle, human lives were being demarcated and placed into categories, their hearts removed within this operative signature of the goblins—an acknowledgement on their part with regard to how they were treated. Adventurers were moved into various systemic containment "glands," their various individual characteristics assembled into a more cohesive base of adventurism, one handled via a hundred goblin superiors, each a leader in their own right. One hundred was not the actual number, but more so a representation. As they were called the "Hundred Goblin Titles," a group meant to represent a show of force on the goblins' side and a sense of organization usually not attributed to the goblin species. The actual goblin *titles* were plentiful, but that was not the point. Their goal was to marry intangible elements into clumps as part of an preliminary non-actual process. And in the aftermath of that messier and improvisational multi-system series of exchanges, they would then transport their clumps into a higher-order agency that assigned values and properties to otherwise undeterminable elements. Simply, their goal involved preventing systematic inefficient through learning. In more complex terms, learning how to verify intangible elements within a larger structure rested upon the need to clarify confusions about the weight of imbalances and how they contribute to quality deterioration. In other words, intangible elements, whether they involve organizational culture, team dynamics, or abstract concepts within a system, warrant certification, and clarifying confusions with regard to the overall integrity and weight that imbalances brought to an otherwise stable larger-structural landscape or plateau and with respect the manner in which they played a role in the deterioration of quality in terms of compactness of usefulness would verify these elements. Furthermore, this certification involved a formalized method or system for assessing and validating these larger-structure–abiding elements. To relate this extended conceptualization to more practical terms, these intangible elements related to characteristics such as traditional human culture; secondly, the dissonances often involved in streamlining various affects involved in the significant events that either plagued them or played an ameliorative or enhancing effect upon them; thirdly, the qualities ascribed to various class-meaning–converging (a creating through bringing together) individuals; fourthly, the readiness of the human's system to adapt to incorporations without too much conflict, which was analogous to the human personality characteristic of openness; and lastly, the *highness* of economic *strangeness* in terms how different *natural* roles played in the hierarchy. When it came to this last of a series of characteristics, "highness" referred to depth while also implying a sense of traditional-level class constraint; "strangeness" referred a more characteristic, functionally formal-methodological form of divergence, often ascribed to the word "strange"; and "natural" precisely referred to how accepted this overall structure equivalency (the weight of accepted 'equal-ness') was, one that touched upon topics such as the distribution of groups within a society. Exploring this abstraction further, when it came to the weight of imbalances, they referred to the sense of spectrum-like dynamism with points, or more precisely *stars*, and how they *danced*, which was why clarifying the confusions regarding them and the manner in which they contributed to quality deterioration. Lastly, with reference to the quality deterioration, to repeat an earlier statement for cohesion, it dealt with compactness of usefulness, basically tying up systematic efficiency as a grounded goal underpinned by underlying concepts.
+
+Moving into reality, wearing purple and yellow clothes, the Hundred Goblin Titles stretched their legs, their feet traversing across the earth, their limbs propulsive, their arms lean, their posture slick.
+
+Their hands operating on each part of their clothes and sliding between pocket to pocket, they moved forward.
+
+The hands assembled upon their arms extended forth, arresting the adventurers that thought they could fight while they were arduously present, having been traveling throughout the whole city.
+
+Their hands smacked the adventurers, and the goblins fell only to kick them in the stomachs, breaking their drives, sullying their humanities.
+
+They clasped them and broke their forms.
+
+The adventurers drifted, exploding into ephemeral dust.
+
+The goblins struck them and broke them again and again, even after their forms had long gone. The humanity that remained was abruptly swept away with the suddenness of their attacks.
+
+They created life through destruction; fixing the weakness present in this society—system absolving through death.
+
+But their goal wasn't to kill. It was only to prevent anyone from taking advantage of each other during a desperate time by murdering brutally those who tried to put themselves as precedents that crime could reign supreme. They were the enforcers of peace.
+
+They sought out the adventurers and supported them in the ways of peace by handing them souvenirs of peace—food gifts, desserts, and other forms of *pasalubong*.
+
+Returning to Billy, he began cleaning up a little as was expected from him, the metal touch of ores and various materials burrowed into the heart of his wagon. He pushed the wagon forward a little before he placed them on a hand cart that he then carried, his back struggling for a while before he stopped. This was very humanizing even for him.
+
+He wanted to use his spells, but they were all offensive. He had given away his mining-adjacent skills to Notch.
+
+He kept crushing through the earth.
+
+It didn't seem like much, but he would manage.
+
+Goblins had pushed him out of the large cave network he helped create.
+
+So now he was here, taking care of a new cave.
+
+This would take a while.
+
+Meanwhile, elsewhere, James Boulevard was in a battle with hobbits, accompanied by several dogs he had saved.
+
+Dead hobbit. Check. Sword out of sheath, distractions out. Blood pattered on the grass, a soft drum against the symphony of the screams of war. The cavalry marched ahead, back and forth, like a metronome marking the tempo of the battle. Mountains loomed, shrouded in mist and secrets, dark green against the gray sky. Northe Road, a rainforest jungle nestled in the heart of the Laazg mountains.
+
+Hobbits bustled outside, a kaleidoscope of magic and hurried steps. A hobbit in a bright yellow coat laughed, her voice lost in the wind's howl. Wagons roared past, their sturdy nailed planks a stark contrast to the vibrant tones of the landscape. Magical structures crowded together, a chaotic mosaic of mana and light, their rooftops hot with fire. The air smelled of death and mud scents, a strange but not unpleasant mix.
+
+He struck deep, penetrating flesh. Not a single dent in his sword. The sword barely dulling. Every moment cried for salvation. And his sword's edges raced down the air, like tiny rivers carving their paths.
+
+The hands that used to paint were now wielders of blades, being required more than ever by his fellow adventurers who had escaped the goblins and fled the city. He had to conquer new lands in order to find new homes for his countrymen. The hobbits were only in their way.
+
+They stole their homes and entered into their quietest places.
+
+Displacement and habitat loss meant trouble on surrounding settlements.
+
+Eventually, he swallowed the flesh of hobbits, hungry after not eating for so long. He needed food for sure, but today was a time of hunger.
+
+Fear and hunger. Check.
+
+He sat down, staring at a hobbit, embracing him in spirit, hugging, as the dead face stared into the sky.
+
+Meadow grass. Check. Sword in, world out. Blood pattered on the grass, a soft drum against the symphony of the battle.
+
+The late Charles Finch's same expression had mirrored the hobbit's.
+
+James cried.
+
+He later stood up, his heart too tired.
+
+He began slashing the rest of the hobbits away, with an exhausted gait heavier than the load of his equipment and sword.
+
+Anger lit.
+
+He shouted at the top of his lungs: "How dare you make me feel like this! To be helpless! How dare you! You disgusting little fuckers!"
+
+Meanwhile, back in the city, the marginalized adventurers that used to be shunned by society was now accepted by the goblins, who supported their long-standing hatred of the evil conducted historically by adventurers against sentient monsters. However, when it came to those who had only hated their fellow adventurers because of the exclusive nature of factions and feeling excluded from quests, they were promptly dealt with.
+
+Though, the newly appointed former adventurers felt awkward and clumsy.
+
+What did this new world mean? Could they really do better than their senior adventurer counterparts? Were they pretentious? They didn't want to waste this opportunity, but they weren't completely confident in their ability to replace the older adventurers.
+
+In the same heartbeat, in the mines, Billy stared.
+
+He fell to the ground.
+
+The magical cave fumes was beginning to kill him.
+
+Billy reached out. 
+
+The new goblin-controlled city also involved a lot of risk-taking, improvisation, and cutting corners due to limited resources.
+
+Billy watched the sky.
+
+He couldn't die here.
+
+He tried again and again, begging the world to forgive him for his sins.
+
+He didn't know what else to say.
+
+Who was he speaking to?
+
+One of the adventurers he was with sighted him and quickly healed him.
+
+Billy got up and out back to the surface.
+
+He had an outpouring of grief, shock, and tears.
+
+This was not heaven.
+
+He would keep going though.
+
+This new world would struggle under the weight of the consequences of the past.
+
+Simultaneously, in hell, Maverick laughed again with the Just and Charles Finch.
+
+Returning to Billy, he got up. He would control this environment.
+
+He had to become free from its clutches.
+
+Nature would obey him.
+
+Society would hearken unto him.
+
+It had to.
+
+It had to.
+
+He kept smashing rocks and begging it to break.
+
+He broke more and more.
+
+He made a chamber where he sat down and relaxed, sleeping on the chamber floor.
+
+The adventurers came in and had a meal inside, talking with camaraderie, while Billy slept.
+
+Shifting to Billy, he was in a dream.
+
+"Are you happy, Billy?"
+
+Billy stared, seeing Maverick.
+
+Maverick laughed, accompanied by two figures.
+
+Billy looked around, seeing a hellscape. "Where am I?" he said, getting up from the ground; though, he flinched when his palm struck a spike. He noticed it bleeding before it healed suddenly.
+
+Maverick said, "Hell."
+
+Billy didn't understand. "How about Notch and Shadrach?"
+
+"Huh? What happened to you guys?"
+
+Billy scratched his head. "We drifted apart after the goblins..."
+
+"What happened?"
+
+Billy finished his sentence: "The goblins took over the city."
+
+Maverick was shocked. "Billy, are you okay?"
+
+Billy stared.
+
+Maverick embraced him.
+
+Billy began to cry, his heart breaking and opening up again, the walls collapsing, the debris clearing. "I don't know..."
+
+Maverick wondered why Billy didn't have parents or anyone else to talk to, but he guessed that Billy was going through a unique situation that even his parents couldn't comprehend that anything they did only made things worse. So Billy found that his life was just too different and displaced out of what was supposed to be normal.
+
+Maverick said: "You have to keep going. Press on. Don't let the pain get to you. The world is watching. Don't be stuck. Keep finding new ground to cover. Don't forget what it feels like to live, and if you do, desperately find it again. If you cannot find it, accept the loss and move on and create new gardens. That's the world we live, Billy. That's what we gotta do."
+
+Returning to reality, Billy woke up, seeing the cold hard ground.
+
+One of the adventurers greeted him. They secretly called themselves adventurers, but officially, they were *kinatawans*. It meant "representatives," but functionally, they were tasked to guard-dog their interests, such as miner entrants like Billy.
+
+"How's your day, bruh?" said Jiji. "I'm pretty much chillin' out here, hoping to get some work done because I'm pretty much dead. I'm behind by... a lot. Seven quarters... I'm being expected to do that much work. Yeah seriously. They said that it was because of the fact that I used to be an adventurer. I mean, I *still am*. But still... I don't know. I'm not really going to do anything. Goblins know that. They detected me, and they said that I am 'innocuous.' So that's a plus. No execution, no death. I'm proud of that, I guess."
+
+"Why you yappin' bruh?" said Redmouth.
+
+"Ah, whatevs," said Jiji. "Me no care. Point is we're going to be handling seven, four, five. I don't know. But we're going to be handling a lot of new miners." He pointed this next statement to Billy. "I heard your friend Shadrach... is going to be visiting." He returned his focus to the whole group: "He said... My new goblin... superior said that we can kind of just arrange things, kind of set things up, and then hopefully we guarantee, we, we, guarantee, have everything prepared. The goal is that, you know, the adventurers—the miners are completely... comfortable, you know.
+
+"Right," said another adventurer, Saturn.
+
+"So what's actually going to happen, though?" said Roark.
+
+"Well, let's see," said Jiji. "Supposedly, we're going to be *the ones* messing things up and kind of making everything worse. But I don't agree of course. That's why they gave us not so much to work with, because they were not expectant *of* a good result. I hope that things work out, because I've, I've never really had to kind of set things, the tone, and all of that. Like, if we go to the dungeon and attack the first things that, like, come in our way. I don't know if I'm going to be able to... handle that, while also trying to make sure that we... have this controf—controllable-comfortable environment. I don't care to be honest. I do. But if we're going to make it, I wanna make sure everything's perfect, and I don't have to do anything after."
+
+"Okay then," said Roark.
+
+Roark wielded his spear, his form grandiose, his clothes slick, his fingers spinning the handle with finesse, his steps rumbling like a pack of hounds sighting a lone rabbit.
+
+The rest of the adventurers followed. "Either way, we ballin'."
+
+Their gigantic shadows dancing interconnectedly, they slashed giant spiders one by one, a spider in each chamber. The spiders screeched.
+
+Cleaning up the area, they gave Billy and the coming miner entrants a lot of space.
+
+But they were exhausted, falling right back to sleep in the chamber Billy had created.
+
+In that same room, Billy had a different perspective. He wanted to detach from this world and see it from a different lens. Maverick told him earlier to find new ground, and he wanted to do just that.
+
+He decided to leave the city, going outside and encountering the other mining entrants who were scheduled to arrive at the mines. But he said he was only leaving for a while.
+
+He kept walking, passing through many familiar placed that were now filled with goblins.
+
+He reached the city gates.
+
+The goblins stopped him.
+
+He couldn't get out.
+
+He had to find a way to leave.
+
+He could have left before, but he had wanted to leave until now.
+
+He was brought back to the mines.
+
+There, he realized that this world neutered him.
+
+But no, he couldn't accept this conclusion.
+
+He had to find a way out.
+
+He asked the adventurers whom he barely knew back at the mines for help.
+
+"I want to leave the city," he said. "How can I do it?"
+
+The adventurers smiled and told him that they could help him and that it was very easy.
+
+They led him to a tunnel that went across the whole city underground. They called it the "God's Tunnel" because it led to paradise, or the outside world.
+
+Billy was able to escape just fine, and all he had to was ask for help.
+
+Now that he was out of the city, he didn't know what else to do; however, the adventurers did instruct him to follow the road and run as soon as he heard a loud sharp noise, because beasts were constantly on the prowl.
+
+If he was lucky, he would make it. If he wasn't, he would restart again and again, running back to the beginning to avoid the monsters.
+
+The goblin guards didn't try to stop him because they thought he was from outside anyway. They just warned him not to do anything and allowed him to stand outside the city walls. They used magic to identify the strength of travelers, and they verified that Billy was innocuous.
+
+Billy kept going, running around. Then, he encountered someone familiar.
+
+He saw a large group of humans and goblins, and among them, he sighted Goldberg, who stood, aiding the goblins in marshalling the humans.
+
+They were about to raid a giant hole where skeletons and giant mud golems were fighting. It had been this way for hundreds of years, and the group was here to train.
+
+Billy avoided them for now and came across a traveling wizard, avoiding him as well.
+
+He came across a giant with a boy riding on his shoulder. He avoided him.
+
+He came across a convoy of carriages, avoiding them.
+
+He didn't want to get entangled with anyone near the city.
+
+Transitioning to a more relaxed and explorative note, the verdant, rich tones of the jungle with its palm, acacia, banana, papaya, and *Premna serratifolia*, among others, relaxed Billy. The whole list includes Mango Tree, Banana Tree, Areca Palm, Papaya Tree, Dracaena reflexa, Frangipani, probably dragon tree, Christmas Palm, Premna serratifolia, Broad-leaved Yellowwood, Golden-trumpet, Lantana, Sanchezia oblonga, Weeping fig, Queen's crape-myrtle, Rottboellia cochinchinensis, white mulberry (no fruit), Chinese-laurel, Monoon longifolium (the false ashoka), Small-leaved dragon tree, Wild frangipani, Fukien-tea, Big-leaf podocarp, Desert wild grape, Darwin black wattle, Beleric myrobalan, Dutchman's-pipe, probably Leucophyllum frutescens (Texas barometer bush), Golden dewdrops, Ipil-ipil, Abyssinian Rhodes grass, Ficus hispida (Hairy fig), Ficus erecta, Ficus virgata (Figwood), Indian acalypha, Jatropha integerrima (Perigrina), Ivy gourd, Albizia lebbeck, Ixora chinensis (Chinese ixora), Orchid Tree, Neem, Dracaena cambodiana (Cambodian Dragon Tree), Blushing philodendron, Queensland umbrella tree, Okra plant, Cucumber plant, possibly calabash (upo) plant, Tulasi, Red mulberry plant, Guava tree, Tamarind plant or Moringa plant, Great Bindweed, Operculina turpethum plant, Tridax procumbens (Dagad-phul), Muntingia calabura (Calabur-tree), Limnophila rugosa plant, Buffalograss, Ficus ingens, Euphorbia hirta (Asthmaplant), probably Chickenweed, probably Carex pilulifera (Pill sedge), Polyalthia longifolia (Ashoka tree), Averrhoa bilimbi (Bilimbi tree), Mangifera indica (Mango tree), Adonidia merrillii (Manila palm), Dypsis lutescens (Areca palm or Butterfly palm), Ficus sp. (Fig tree - Specific species not identified), Terminalia catappa (Indian almond or Sea almond), Pterocarpus indicus (Narra tree or Amboyna). It also had shrubs or smaller plants: Dracaena fragrans (Corn plant), Costus sp. (Spiral ginger - Specific species not identified), Philodendron sp., Dracaena marginata (Dragon tree), Dracaena reflexa variegata, Polyscias fruticosa (Ming aralia), Dracaena trifasciata (Snake plant or Mother-in-law's tongue), Asparagus densiflorus 'Sprengeri' (Asparagus fern).
+
+It was a multifarious landscape, and not all of them were healthy or mature. Many were young and looked nothing like their humongous fruit-bearing mature counterparts, and not every part of the forest was fine. Many dry leaves scattered on the soil, many areas having limited plant growth, one cause of which was human activity.
+
+He came to see everyday laborers tending to trees.
+
+Within the dipterocarp forest, the laborers engaged in selective logging procedures, going three phases: tree marking, inventory of residual growing stock, and timber stand improvement. To explore this further, the marking was not for felling. They were actually for the ones to be left for the future crop. Basically, the residual future crop, which included a component of young, healthy, well-formed commercial tree species, was selected and marked. There were more details to this, but for the sake of concision, this was a good place to end.
+
+It was a magical time to see this because of the 30–45 year felling cycle for each section or compartment of the forest, so Billy watched.
+
+In the end, this world—no matter how much his personal perspective at many previous points blinded him—moved on.
+
+Billy didn't have grand ambitions he realized.
+
+He just wanted to be free from everything.
+
+Maybe he was too young to think about this, but he really wanted to run away.
+
+He wanted to run away from everything.
+
+He saw Notch and Shadrach walking over to him.
+
+"W-why are you guys here?"
+
+Shadrach and Notch smiled. "Let's go! It was Notch's idea. I told him that I saw you leaving and had a feeling you were here."
+
+Billy smiled. They were just teenagers. Anything went.
+
+They ran.
+
+The forests sounded an alarm.
+
+The world was beginning to close in on itself.
+
+It was silent.
+
+It would never allow horrors to be allowed.
+
+Billy, Shadrach, and Notch approached the tyrannical forest, a new place to die; passing by a new road, Broken Road.
+
+A man wearing a mask saw them in the forest, but he didn't care. He was the one who had been collecting souls at a previous large battle between adventurers and monsters. He was a spectator during that time and used a portal to escape.
+
+Right now, he was focused on his relentless goal.
+
+He had to stop the beasts from killing the boys.
+
+He struck and beat the beasts one by one, leaping tens of meters from spot to spot to make sure not a single beast came unnoticed.
+
+The boys moved forward, not knowing the mighty man that saved their lives.
+
+Not every powerful man only had darkness in his heart. Many still saw the light that shone at the horizon, though coming at the cost of a deep darkness lading their actions, because with great power came the difficulty to see nuance when their unhindered, unlimited actions struck extremely powerfully without compromise.
+
+The beasts were necessary for the forest, but the man was killing them all.
+
+The forest grew weaker that day.
+
+But the Billy, the Shadrach, and the Notch, the kings and queens of this world, human beings who deserved all, were safe.
+
+Ultimately, everything came at the price.
+
+Eventually, Billy, Shadrach, and Notch faced Goldberg and the goblins.
+
+The masked man would have brought them, but he would leave them here, minding his own business now that he had killed some beasts. He only needed a few ingredients from the beasts anyway. But he just extended a little effort to help. Now that the boys were caught, he didn't really care after that. Plus, the goblins and the boys might be on the same side now.
+
+Goldberg recognized them. "Good morning. You guys are travelers right?"
+
+"Yeah..." said Billy.
+
+"That's right. Are you heading to the city? Why not come with us?"
+
+"No, we were leaving actually.
+
+Goldberg was glad the goblins were not listening because he had made sure he moved far away from the group just to engage with a group of older travelers. Plus, the goblins didn't really care.
+
+Goldberg nodded, saying that the boys only had to walk past them.
+
+Billy, Shadrach, and Notch obeyed, passing by the goblins.
+
+This time, Goldberg had their back.
+
+When the boys finally passed, they were free.
+
+They ran, laughing like children all over again.
+
+Their friends and family were back in the city. But those were older friends and family they knew, none of them knowing what it was like to be them. Their emotions and trauma affected them on a daily basis, and no one could help them. Not a single person made them feel valid. Everybody just told them to keep marching on, as if nothing had happened. They expected the usual responsibilities and duties from them, and they tried their best. But soon, they reached their limits and broke.
+
+That was why they were here. They wanted to be free from the expectations of a normal life, because they were not normal anymore.
+
+The city didn't feel like a home anymore. It felt like a cage. Maybe, it always had felt like that, and they just realized now. Maybe, this was the truth that set them free. They would finally reach the stars together.
+
+The trauma they experienced together bound them together, especially since they were only teenagers, young enough to believe in friendships that lasted forever.
+
+Though this friendship was built on dreams, maybe that was enough.
+
+An aforementioned group of protégés sighted them. As mentioned before, they included a researcher-detective, a skillful pike-maker, a missionary-chaplain, and a well-equipped swordsman-crossbowman.
+
+The boys were never truly free from the city's influences, despite the disruptions the Just and the goblins had brought.
+
+The protégés told them to ride on.
+
+They each rode magical carpets that floated in mid-air and flew very fast.
+
+The boys nodded and rode, still in good cheer.
+
+Their destination was a new city, the fourth city from Antipolo City. Basically, three intermediate cities lay between this new city and Antipolo.
+
+Antipolo was out of the picture, but everyday, it leaked its influences.
+
+During their long travel, the boys saw giant hornless rhinos (Paraceratherium) and other strange humanoid animals with various blends between bats, dogs, cats, and other common animals and humans. Eventually, at the end of their journey, the boys arrived at a small shop where the protégés told them to put on the cheap clothes they bought for them. It was a shop in the middle of nowhere that appeared magically when visitors came, being invisible for the most part.
+
+When the boys put on the clothes, a tinge of nostalgia got them.
+
+It was a nostalgia of a thousand experiences, hot days, night walks, and communal experiences. Too many things occupied their mind to the point of making them stare into nowhere with this caught-up glare, like they were being eaten up inside, not a single thought entertaining them with peaceful imaginations. The world was too peaceful and relaxing for them.
+
+It was too okay.
+
+The beating heart of trauma made the normal seem terrifying, each corner and shadow a terror upon the night.
+
+The beautiful sun and sky consistent throughout their memories made them tremble inconspicuously. It was the tranquil moments throughout their lives that left them sweating at the brow. That was why they were scared now.
+
+They wished only to be safe.
+
+But they could not do anything. They only had to accept that.
+
+They regained hope.
+
+But the world would not let them lay still.
+
+It called them to take up arms and fight!
+
+Get the hell out of there and move! it said.
+
+You dare sit down and lay still!
+
+Move you brats!
+
+Time to fight this world amiss!
+
+Go to hell! And succeed!
+
+You must become great warriors of power and strength.
+
+Don't let this world claim you! Become great kings and queens upon this land!
+
+Take them all. Kill all those who oppose you.
+
+Become your men!
+
+Become your selves!
+
+Become unhinderable!
+
+Shut out the voices that say otherwise!
+
+Shifting to the protégés, they didn't care whether the boys did anything significant. They didn't expect them to. It was not in their agenda. They just did it as an aside, and it was typical in the culture of this world to care for the elderly, stay with one's extended family, and extend hospitality even toward strangers. But even if that was the case, they still made a choice to help a group of boys.
+
+They would allow the boys to follow them for the meantime, not really losing much to do this.
+
+They had hundreds of servants and followers, but they were doing resource collection right now far away in their shared estate.
+
+The protégés themselves were traveling and achieving big quests here and there, a routine they had been doing for several years now. It was a monthly thing for them to travel and take on a series of quests all around the region.
+
+Meanwhile, a tall man stood, accompanied by a group of goblins with a hobgoblin leader, a mimic and two demons, and group of humans. "I am the Destroyer," he said.
+
+While the group of humans kept poking enemies with long-range skills, the rest of the group made sure to keep their distance from their enemies to avoid getting caught.
+
+When the enemies finally began grabbing the crystals they wanted, the tall man's group began positioning closer, baiting the enemies to react too early. Even if the enemies had control of the chamber where the crystals were, the tall man's group still had a chance to steal the crystals. He leapt forward and used a skill that stunned an enemy group of humans.
+
+His hobgoblins followed up by barraging them with close-range spells and projectiles.
+
+The mimic and two demons joined as well, tanking damage for the hobgoblins and dealing some heavy damage as well. 
+
+The enemy was wrong to begin taking the crystals in front of the enemies, and they got destroyed one by one. Though, if they began taking the crystals a minute before the tall man's group saw, they would have gotten away with it and possibly turned on the tall man and destroyed him and his group.
+
+Even now, forces were working together for common goals.
+
+The crystals and spoils were divided evenly among the winners.
+
+The tall man soon got word of the movement of adventurers into hobbit territories. The hobbits had helped him and many others, so they were distraught at this revelation, immediately preparing to journey there.
+
+Zooming out to the broader world, even now, it  continued to turn and shift with the changes.
+
+The adventurers chose a more violent route instead of making peace with the hobbits due to their more violent and controlling nature, especially seen with their behavior toward the miners.
+
+The New Adventurers proved that, and even if many people supported the New Adventurers, many new opponents arose like Nathaniel Leroy Sinclair and even Lord John Roger of Trogan to some degree.
+
+However, the goblins supervened, exposing them to various conditions of life, mashing through their dynamics and momentum. Nowadays, Nathaniel maintained his influence with the people by loosening up and spreading out similar to a criminal organization in counter to intense government investigations. In contrast, John Roger was returned to his House of Notadom. Though, now the powers that he held was severely limited and shown rarely if ever to give a show of force that combined both goblin and human forces, giving a sense of officiality in their international image.
+
+It was expected for Antipolo to consider an attack during their vulnerable post-Just time, but the previous authorities were sure that the city would be able to withstand a goblin invasion, if given time to heal a bit.
+
+However, the goblins were ruthlessly efficient, something that hadn't been the case for centuries, breaking the expected time frame by numerous halves.
+
+In response, many among the humans were sure someone among the goblins was an influential human commander who colluded with powerful connections all around the region. And it was no secret that goblins were one of the many playing cards of the region, given that they were often reduced to either free XP, monster fodder, slaves, or mercenary status. In fact, the term "mercenary" was too expensive and sophisticated for them most of the time. Even the lowest bracket of humans were not called the same native word if they were slaves compared to goblin slaves. "Mercenary" often came across as a dignified role when compared to how humans treated goblins. That was why the term "adventurers" existed, because the term "mercenary" wasn't accurate but also because humans left that term for human barbarian tribes or groups. When goblins came in the picture, they were nothing more than a bug. If miners were looked down by adventurers, then goblins even more so. At least the miner-adventurer thing was controversial. The goblin-human thing was not.
+
+There was no way just any goblin infestation could reach this far. The same arrogance was felt throughout the entire region, so many cities didn't care and still thought that it was a hoax or a fake. Goblins were nothing, they said. But that only represented the dominating perspective. In this world, unique individuals played a bigger slice in the picture. This was why the tall man with his diverse group members with goblins, humans, and demons surpassed others.
+
+Returning to the three boys, Billy was sitting down inside a large guild office, but it was quiet except for the sounds: soft murmurs of conversation, rustling of papers, distant footsteps, occasional coughs and throats clearing, faint hum of the wind through the open windows, rock mining and wood construction outside, and slight rustle of clothing as people moved about. Right now, Billy, Notch, Shadrach, and the protégés were at the edges of their city destination.
+
+Even wth everything that happened over the last 2 months, it was just the equivalent of Tuesday for everyone present. Naturally, it did have an impact, and even everyday life was affected, leading to people conversing about the past events and being changed culturally as a result, such as an increase in vigilance toward goblins. So the topic of goblins was partially moot in some regular places, but not so much among the higher social classes.
+
+Politics played a role here as per usual.
+
+However, it did still feel like everyone was trying to get by, even now. Billy, Notch, and Shadrach still could enjoy themselves though; many novel sights, places, and establishments greeted and waved.
+
+The roads here were sloping, adventurous, and much less level because the area was more mountainous, lying along a 50-kilometer ridge.
+
+Even if Antipolo itself was in a mountainous area, the new city was even more so, overlooking a large lake with a volcano.
+
+Backn in Antipolo, tens of laborers walked the neighborhood streets, very clearly engaging in construction. Here, the main road were much more cleaner with lots of garden plant stalls thriving.
+
+Since the soil had volcanically rich, it produced main goods such as pineapple, coffee, banana, cacao, root vegetables, camote, cassava, and cut flowers, among others.
+
+Its population paled in comparison to Emerald Haven.
+
+The thunders of war continued hundreds of kilometers away.
+
+Billy, Notch, and Shadrach was right to believe in hope, because much could be learned by stepping out.
+
+But it was not hope existing in a vacuum. The protégés, the former adventurers, the masked man, and Goldberg helping them was a very good message, and one that showed that even despite everything, the past events still mattered even now. Ironically, Nathaniel Leroy Sinclair was absent recently, but the three boys didn't fault him for it. They were still young and very forgiving.
+
+However, Billy, Notch, and Shadrach could not comprehend the complexity of their world so much, even if they knew sensually what they experienced. Their knowledge was still lacking much, but as they matured, they would look back and realize the depth of their firsthand accounts of those past events as young teenagers. They didn't know what went on in Goldberg's head, Nathaniel's head, or in the head of any other complex person they had encountered. But that was life for them.
+
+They would continue on despite the greatness of the world and how much they didn't understand about it.
+
+Relocating focus to a more everyday level, the three boys had varying demeanors and concerns.
+
+Regarding their demeanors, to begin, Notch wondered if God saw their actions and thought it was bad, eating one of the three apples he procured from one of the protégés.
+
+Second, Shadrach scarcely wrote down a list of notes regarding their journey before he disembarked from the magic carpets. He got Notch's second apple.
+
+Finally, Billy was the one carrying most of their things, more focused on being the eldest among the three. He kept his gait stable and dominant. He was also eating the last of Notch's three apple.
+
+Moving on to some feedback from the protégés, they led the boys down a path that led to a million places. The boys' meanings would become refined soon enough.
+
+Overall, the boys' present dispositions had bearing on their exact future state.
+
+When it came to the boys' concerns, being 14 years old, Notch, for one, still hadn't been able to make peace with his parents. "I'm sorry that I let you down," he told them before he left. "I guess I'm a disappointment."
+
+All these voices in his head got loud. He wished he could shut them out.
+
+Two, Shadrach was still 13, so he was still very optimistic, even now. But the trauma affected him, albeit with postponed effect.
+
+Lastly, Billy was still adventurous and curious, still unsure about himself and things. He was 18 years old, so he was stretching himself out of his comfort zone and was the reason why the boys left the city in the first place.
+
+Their hands pressed neatly against the ground, the world pressing against them further and further, their eyes glancing at the beautiful sky. Even now, their hearts leapt and whirled like clothes wrapped tightly together in a comfortable forest glade.
+
+Their hearts, while tired and broken beyond a sense of belief, found joy in their surroundings and a vegetation nearby. 
+
+Meanwhile, the boys arrived at a garden, led here by the protégés who were curious about it.
+
+The garden, while verdant and damp, was an ancient trinket of history insomuch that scholars visited it frequently, with a sense of impunity given their inclinations and the bureaucratic variability of their work.
+
+In contrast to the busy-body scholars' rationale of visiting this place, the protégés were here to pay their interest and respects, as it was a popular landmark here. Though they had seen many times before, they were here to indulge their feelings of nostalgia.
+
+The protégés stared at the vastness of the space; looking at the walls that shielded it from the winds and prevented the rain from pouring so heavily upon it through the path of accumulation. Furthermore, the garden was safe-guarded, and the sun fell upon it with care; gardeners strangely making their way hastily throughout the arrangement of the plants like they were in a game requiring speed and rhythm. As for the reason behind this, the plants were magical and strange likewise; requiring sunlight and forms of magic to sustain their incompatabilities with the soil, climate, and magical properties here.
+
+The boys were excited, their lips going only through two phases of open excitement and closed wonder.
+
+Conflicting with the pouring relentless embrace of the valley breeze, under the sun, sweat dripped down from the noses and extremities of their faces and the sides of their necks, shoulders, bellies, and legs, hurriedly coating them with a protective layer of freshness in response to the lingering pressure of tropical heat.
+
+The love taps of the rain-befriending sun crushed the southwest-heading winds and then made pie out of them, hurling an even stronger rainy monsoon at the peoples of the land amid the sun's peeking rays.
+
+Even now, the sky burst forth with water and color, shining the earth with its glorious name.
+
+Now, seeing this beauty, a fire lit up in Billy' heart, something that he saw in Goldberg's eyes—Ambition.
+
+He didn't know what it meant, but he would have to calm it for now.
+
+The whispers of the road of ambition raised their wolf heads for the first time, seeing a potential target for their taunts, mockery, and consumption.
+
+Billy was at that age where ambition began to eat its meals for the first time, having been dormant and listless during childhood. The kind of ambition children felt was more akin to curiosity if anything, but with curiosity satiated came a more involved and intense desire to conquer challenges blocking the natural path.
+
+It was about time for him to get conscripted if he wasn't an essential worker or adventurer already.
+
+Billy knew beauty when he saw it, and it ate at him that he was not being pressured to excel at his age. He felt that he was not being laden with enough responsibilities for people at his age. He hated being complacent.
+
+Fire burned in his heart.
+
+He wished only to become everything—the same wish held by many adults in a time of turmoil and humiliation, contrasting that of the listless, callous ones.
+
+Speaking of humiliation, the goblin attack on Antipolo City was described as "the humiliating reminder."
+
+Along with that description, an international coalition of adventurers that had started off as a single coalition in one of the major city-states began to rise to the occasion. They would stomp the goblins and free Antipolo.
+
+Like revolutions, they poured through the lands, crowding the routes through which the goblins could escape, passing through the "Earthly Territories," those held predominantly by hobbits. For context, it was there where James Boulevard was snatching homes away from hobbits and the tall guy's group, with goblins, humans, and demons, was heading to protect them.
+
+They struck gold when they found an opening.
+
+The goblins might have completed the quest to assaulting and successfully occupying the human state. But they did not prepare for revenge.
+
+The humans hated seeing their kind be slaughtered mercilessly.
+
+A series of human attacks that would become known as the "Freedom Counteroffensive" would begin in 5 days.
+
+Goblins had thought through their prime offensive well, but they lacked much information with regard to the other human-states. Though they knew that humans had a history of establishing international alliances for reasons such as sharing culture, adventurism, and trade, they were praying that the humans would not retaliate and abandon the state. This was an unintended consequence, one that they did not want to address in drafting.
+
+However, they did begin stocking Antipolo with goblin-fitted weapons, armor, and supplies for the droves of new goblin soldiers that would fully adjust to the new goblin-occupied state in 3 days. 
+
+They hoped to contradict history which had time and time again spoke of the greatness of human flesh and blood, while speaking disdainfully of the pitiable acts of goblin leaders in their attempt to secure a piece of the regional pie.
+
+The sky was the limit.
+
+Meanwhile, Billy was approached by a recruiter who told him that any and all were allowed to join the coalition. He said Billy's role would be carrying mana cores. Though, he didn't mention that it would involve taking care of enemy traps using long, magical sticks.
+
+Billy looked at Notch and Shadrach, both of whom weren't given the same invitation. He didn't want to get swept up in the current situation, and he wanted to stay by his close friends' side.
+
+However, he remembered an event the time when he was still an apprentice miner. This event involved him and the other apprentice miners at the time fighting each other, and he wondered if they could be a part of a conflict bigger than themselves. He wanted to set an example and show the boys that he as the eldest could do good by the past experiences they shared in light of the frustrations brought about by recent events and the lack of an idealistic culmination of events.
+
+He wanted to change things, even now.
+
+He accepted the invitation to conquer.
+
+The recruiter paved the narrowest path to the light of God.
+
+Destruction would commence.
+
+If Notch and Shadrach chose to leave him, they knew that Billy would die.
+
+They had to stay and somehow join the coalition.
+
+They asked if they could join.
+
+The recruiter declined, saying that they would rather have matured individuals in the ranks than waste 15 years of growth when they could have waited 3 or so more years for the child to mature fully in their time of growth spurt.
+
+Notch and Shadrach didn't know what to do, but Billy and the protégés convinced them to let it go and focus on their journey. "Billy is in a different path," said one of the protégés. "Let him learn and understand the world. Then, we can ask him then what he thinks about all of this."
+
+"Just like that, okay?" Billy said a familiar list of phrases characteristic of him. "Just need to completely obliterate everything. 
+
+"I am genuinely going to complete like a frickin' quest. 
+
+"This is actual adventurer activity, no joke. 
+
+"Rambling on, taking on, fighting on like a soldier or something. 
+
+"That crazy kind. 
+
+"Everybody knows that that's the best world... in the world. 
+
+"It's like wonderful, joyous, amazing... Yeah!"
+
+He imagined thousand giants looking at him from afar with encouraging gazes.
+
+He remembered his wish to become a rich, fat man wearing a top hat and armor with cool clothes, rings on his hand, tiny legs, and a round body shape.
+
+In conclusion, Billy's path diverged from Notch and Shadrach, and the protégés were essential components in this event, with all its subsequent consequences.
+
+Notch and Shadrach's worlds were shifting.
+
+At one point, they had wanted to rule the world, but their definition of this continued to be incomplete.
+
+Ten hours later, elsewhere, in the Earthly Territories, a man stood, watching over a wide area. "Count the bodies," he said.
+
+James Boulevard—one of the adventurers that represented not only the proxy adventurers of John Roger but also the old adventurers—died at the hands of the tall man's group.
+
+Nearby, familiar faces became exposed: Elizabeth, Mary, and Sarah.
+
+Diverging from the everyday level, broadening the perspective, a status reminder of the overall world 73 days since Maverick's first appearance would help make sense of everything.
+
+As for the past events, they included the Marchacha attack—the 48 Apprentice Miners Incident—the Just's attack, commonly known as "the Great Slaughter"—the goblin attack and occupation on Antipolo City—among others.
+
+The living included Billy—Notch—Shadrach—the group of protégés—Goldberg; his wife, Priscilla; his two kids, Nash and Leia; and the representative with him—Nathaniel Lero Sinclair, Catherine Orlov Sinclair, and his two kids—Lord John Roger of Trogan—Sprutnoa—Inframark—the remaining apprentice miners; Ethan, Sophia, Noah, Liam, Alexander, Oliver, Ava, Jackson, Benjamin, and Nathan—Jiji, Redmouth, Saturn, and Roark—Jashuki—the goblins, adventurers, and other people that survived the Antipolo attack and subsequent goblin occupation—the Marchacha goblins—Kahul, the representative of the Marchacha goblins, who was working with Goldberg—Roots—the Hundred Goblin Titles—the Tall Man—Silavush—Divrese—Ariella—Isabella de la Cruz—the former prisoners; Bean, Catherine, Samuel, Joseph, Benjamin, and William—the former 69 other proxy adventurers under John Roger, many of which had gone missing in action or died—the thousand goblins finding a place to establish a settlement—the adventurer party whom Nathaniel had hired to help Shadrach for several days—the miners under Nathaniel Leroy Sinclair—Nathaniel's adjutants—the adventurers who had gone into Nathaniel's mine to find the Marchacha goblins—the 47 friends, 20 contacts, and 15 enemies that Nathaniel's former apprentice miners had made by networking—the masked man—the trolls that had killed lots of adventurers—the young woman that Notch had seen sitting in the street—the various groups the post-Incident apprentice miners had seen in Northe Road; the small boy frustrated with a magical gemstone, the families competing over a ring with magic, and the adventurers discussing casually in separate groups with the wind giving them privacy—the woman who questioned the funding of the calfear's capture—the officials present during the official event—the older men who had cheered on the adventurers stopping the attack—the girl with fire magic in the school with red and white banners—and the monks who had interacted with the group of protégés—among others.
+
+The dead included Millie—Maverick—the Just (Yesami)—48 apprentice miners of Nathaniel Leroy Sinclair—marginalized adventurers who attacked citizens—adventurers who died against the Just—goblin messenger killed by Goldberg—the goblin necromancer and his group—and 30 Adventurers of John Roger killed by the goblin necromancer—Sarah, Elizabeth, and Mary—the adventurers and goblins that died during the goblin-human engagement—the two adventurers who shared a drink with Goldberg after saving him—Charles Finch—Evernight—Saddest—and James Boulevard—among others.
+
+Other parties included many former or dormant entities: the former King of Antipolo City—the city authorities—the new adventurers—the adventurer guild—the church—the miners—the laborers—the soldiers—and the civilians—among others.
+
+Touching briefly on a two present moments, first, Goldberg was playing pantintero with kids in a large crowd and playing with cheap artifacts called "Droppers" that created small explosions, the equivalent of a fire cracker.
+
+The goblins allowed Goldberg to ease the everyday people with cultural forms of entertainment.
+
+Second, Sophia and Ava, who both wore bamboo hats inlaid with metal like Millie, began training together, joining an underground community with many women who used to work as guards. By now, the prevailing priorities, strategies, needs, tactics, and trends had taken on new forms.
+
+Anyway, Antipolo was not Antipolo right now, but it would continue to diverge with no stops. Soon enough, even people in the streets would dress and put on outfits and attires starkly in contrast to the fashion in the days before Maverick died. 
+
+With reference to the current socio-political context in Antipolo, it was interesting because the New Adventurers represented both new and old values. It was new in the sense that it represented a shift toward centralization with the removal of proxy adventurers, which many marginalized adventurers and some nobles who openly had proxy adventurers rallied against, but it also advocated for adventurism. As for why marginalized adventurers hated this new movement, they strongly associated centralization with factionalism; contrastingly, factionalism was heavily weakened by the Just attack and the goblin attack and occupation, resulting in an announced need for the government to intervene and set facilities up directly and with limited checks and balances. Though, many scholars would dispute the validity of this correlation between factionalism and the crises, with the characterizations presented, and others cast scrutiny on the possible interpretations behind the announced need for the government to consolidate power. Continuing the main topic of differing viewpoints, many everyday people in Nathaniel's side opposed the New Adventurers, but they didn't necessarily advocate for a return to traditional values, because adventurism dominated traditions. What these everyday people did want now was "deadventurification," or extinction by destruction of adventurism as it was traditionally known to be, bordering arguments to extirpate the state-sponsored role adventurers played altogether, which many would argue that it directly led to the death of adventurism. In conclusion, the New Adventurers, the everyday people represented by Nathaniel, the nobles, and the marginalized adventurers made up different sides, and even within them, various perspectives disputed the nuances and the limitations of each side's goals. Regarding multi-partisan actionable initiatives, some cross-factionally popular individuals and multi-partisan teams had tried finding a compromise between the sides, but the goblins disrupted everything, taking over the government suddenly. And now, an international human coalition was on its way in just 5 days. Shifting to a broader statement with respect to the effectiveness of knowledge in this pressing period of strife, chaos, conflict, and confusion, and by extension, the effectiveness of this analysis—many was actual, but not everything was communicated fully. In other words, a gigantic discrepancy divided what was actual and what was known. 
+
+This could be considered an oversimplified scratching-the-surface look into a real situation, and numerous experts would argue that it was very inaccurate and blatantly wrong and misleading. But it would do for now.
+
+Returning to the present from Notch and Shadrach's perspectives, they were currently riding a magic carpet together with one of the protégés, heading to another side of their current city—the City of Taktak.
+
+Relocating into a more vividly descriptive note, the silent throes of earthly shadows dispersed into the atmosphere; breathless noises shuddered about in anticipation of the great feat to be committed by Billy and the other soldiers; a hundred voices leveraged the nightly air and let their voices be heard throughout the prevailing darkness as a show of force; shallow waters tickled the air, precipitation carrying along its usual routine; the loud creaks of doors and papers getting stuck in gaps in desks created an awful sensation of irritating familiarity; the soundless cracks that stretched whenever a man lifted himself out of his sleeping tent and engaged in martial locomotion soared flightlessly into the night, expecting to fall; soldiers hurried about on quick legs, their soles unmitigated by preciously woven footwear and sandals; light clothes embraced their little wrists and shoulders, keeping them close to comfort; nightly gowns were pulled away for the coming human-monster skirmishs expected to transpire; fire burst in the darkness; a sword of light emanated in the darkness; and an former adventurer powerful enough to crash through doors exited a camp and began to swallow the monsters whole with the singeing edge of his glowing blade. But this was just a false alarm. No monster wave here. Only a bunch of beasts that had forgotten their limits.
+
+The touch of swords massaged a monster's nest, as voices scurried about, making their way past the looming bark of trees; questions popped up like savages, quickly assaulting each other and crashing deep into the minds of those who heard. 
+
+"When are we going to war?" was one of the questions, striking deep into the chord of the souls present. It was rhetorical, one used to remind the soldiers of a war so tangible that their brows sweated, their seats began to recoil in frustration, their arms reeled back and toward the farthest door they could find, and their hands tasted blood.
+
+Former adventurers who had only seen monsters in their dens had not seen a war as vast as that required in a siege.
+
+Metaphorically, this was a thousand men and a thousand goblins all at once; as opposed to a few people punching each other on a stage.
+
+Meanwhile, Notch and Shadrach spotted the camp wherein the soldiers here fought the bunch of beasts, passing through on the magic carpet. Taktak was training soldiers for war, and they were not yet mobilizing at the bridgehead.
+
+This was also where the two boys thought Billy was, since they saw him enter a staircase that looked like it led to the training camp.
+
+Soon, they left; the magic carpets ridden by Notch, Shadrach, and the protégés stopping and creating space between them for the passengers to disembark neatly and in an organized manner.
+
+In the distance, they saw the lake. Even without anyone seeing them, the tides (not true ones) swung left and right; who knew where they led?
+
+Notch adorned a lavender-purple fitted jacket with embroidery depicting human ambition and decorative buttons with adventurer motifs, his hands tightly pressing against his mustard-yellow tight-fitted knee-length trousers, his arms lifted above his head and showing off the shape of his form with the inclusion of a red hand-following and -accentuating cloak that played a discordant role into his overall outfit, stockings paving the path to salvation just by joining his outfit alone. But that was not all to his form and to his character.
+
+He held a pickaxe, walking down the path, with magic guiding his steps. The protégés were careful not to let him go alone, so they kept a magical aura protecting him and determining the footing in which he would take, slashing time and constraits off the board. Their goal was organizational, and to process a young boy like Notch, they had to be swift and regulatory. If the time came for him to recognize his power and worth, they would then free him, pouring him out in the world like a vial, and through him, castrate armies where it was needed. But that was not the end of Notch.
+
+That was only a latent possibility.
+
+Notch stood defiantly against the sights of the clouds, the weight of the woodland, and the raging beasts that signed the strench fumes governing his past events in his mind—the sacred art of looking closely became his weapon, supported by the crushing power, Shadrach, whose arms stretched forth in literary volition, creating masterpieces of a few words with just a glance. Shadrach knew the powers that he was gifted, and he would let it go hastily and clumsily to the world. This was their allied power.
+
+When they given a chance to use a pickaxe, Notch struck deep, exhausting the force that rocks held and mightly impinging upon them with his pickaxe stick. He crushed them, breaking them apart, destroying the fabric of their sanity, bulldozing them to sleep, putting a drop of water and scrubbing them off with soap. He *pincered* (precisely speared) deep.
+
+Drifting to an emotional level, Notch sat down.
+
+Not a single emotion touched his heart.
+
+He slightly smiled with emptiness in his eyes.
+
+Regarding his recent psychological history, since the troll attack that left his former 48 co-apprentice miners dead, he would go on the streets and imagine shadows of trolls instead of buildings and imagine passersby with mauled faces, destroyed bodies, and blood bleeding everywhere. The incident never went away, no matter how detached everything felt toward him. He often cried in private, and many had called him sensitive and lazy when he showed signs of depression, not a single person asking him how he felt or how he was doing. They thought he was being rebellious just like the rest of the teenagers his age around him. 
+
+Overall, that was a strong reason why he left Antipolo City. 
+
+Extending this case study to Shadrach, even now, despite using writing as a way to distract himself, never addressed what happened, only pretending and lying. He didn't address the issues, always hiding and keeping his mind tucked away from them. He only focused on distracting himself and slowly finding beauty in his environment, but a heavy weight pressed against his mind and soul. He was similarly struggling with low spirits, and he felt like the weight of the clouds was upon him. 
+
+All in all, this was the truth of a horrific incident, something so dramatized, sensationalized, normalized, and desensitized among people who had never experienced it. But they wanted to move past it, like everyone else after the end. Their life didn't make sense, and the circumstances around their fortunate experiences and unfortunate ones were murky and left to their interpretation. With respect to broader perspectives held culturally within a cosmopolitan landscape, many views gathered recognition. First, if they were grateful to the universe or to God that they survived, then so were those past circumstances a result of good will. Second, if they believed that they were special that they survived, then so were those circumstances a consequence of their special nature. Third, if their good works reaped harvest that they survived, then so were those circumstances an outcome of a yin-and-yang type of karma. Fourth, if they let it go as a byproduct of variability, then so were those circumstances a culmulative reaction to underlying factors, many of which only played a peripheral role. Lastly, if they saw no meaning in this, then it truly didn't have to matter for now. In a continuative note, they could find that meaning later. Moreover, for now, they could just let it all go, and what that meant was conditional to subjective consideration. Furthermore, their perspectives would grow overtime, and they would learn, growing deeper in their core beliefs or finding new ones onto which to hold. To finish, what mattered now was that they pressed onward, however messy it made them feel.
+
+Elucidating the relationship of the boys with the protégés, the protégés thought of setting up a variety of different places for the boys to enter, placing them inside a very small shop where they could start selling stuff. They thought that it would be good to give them a job where they could begin to recover their pace. The goal was for the boys to relax and take their time.
+
+This was easier said than done, because even if the protégés could ask around, they wouldn't necessarily get a positive answer with regard to taking in the boys and hiring them. In the end, they had to pay their metaphorical tithe in the sense that they had to go by the traditional route and just have the boys join them back at their shared estate.
+
+The protégés were not happy with this, because they knew that the other protégés were going to start complaining again. But it was a minor overblown issue.
+
+The protégés were just people with their own goals really, and some of them were fine with taking in lost boys. The rest were not. 
+
+Now, the consistent goal among the protégés present with the boys was to keep an eye on the boys for now, so that's what they did.
+
+Instead of staying here at this city, they called for another trip. This excited the boys.
+
+As soon as they left, it was all fun and games again, as the boys and the protégés played games during their magic carpet drive. The magic carpets only flew a 4-or-so feet in the air, adjusting quickly for slopes, but it couldn't climb cliffs.
+
+As soon as the boys began to feel sleepy some hours later with the drizzle pouring and the cloaks of two of the protégés covering them, the protégés told them to let themselves sleep.
+
+They fell asleep and woke up hours later.
+
+They weren't at the city yet, and it was humanly tranquil with only the sound of wind currents, the flapping of their clothes and things, the hushed voices of the protégés as they talked genially, and the weakened glare of the setting sun. Magic mitigated the damage and heat of the sun's rays.
+
+The feeling of the carpet gave them ease; though, it left them worried enough to look around.
+
+They passed through gigantic forests with large roads. Beasts and monsters were present, but they couldn't catch the magic carpets. The trees also protected them from sight. The magic carpets were quiet as well, and the sound of the protégés were magically weakened.
+
+This was how different life was for the wealthier protégés compared to numerous people at Antipolo City.
+
+Moving on to a new stage in their journey, they reached a large spot where hundreds of students were being asked to shoot their first bows. It was a village area, so not all of these people were being tasked with greater purposes in life. But they still tried to make do with what they had. They also received help from someone from the city.
+
+The bows were hand-crafted just for them, and the person training the students was a professional.
+
+The teacher, Narikatula, gave them time to divide into groups and discuss methods.
+
+The discussion would reveal their effectiveness in critical thinking and creativity, but even then, Narikatula emphasized that though good methods were going to get them points, the point of discussion was to give each individual an opportunity to think critically about how to use the bow effectively in combat.
+
+The students were joined by Narikatula's helpers from the city, who offered advice and helped answer questions as a facilitator in these groups.
+
+The protégés stood nearby and observed. The fact that they could just do this was crazy.
+
+They were going through so many different places and events and just hanging out, especially with the Just attack and the goblin invasion.
+
+They were hands-off, and they had the tools and resources to leave quick and stay for months in one place before leaving again.
+
+"How's it going everybody? We haven't had a good show in a long time, but this looks like it'll be a good one. I haven't heard of anyone really talking about this."
+
+One of the protégés went forward and opened a portal that poured out a bunch of different rare bows onto the ground. It was trash for him that he could have liquidated easily into some cash. However, he also got XP by giving it to these students.
+
+The students and the teacher were astounded, and he was glad.
+
+The rest of the protégés minded their business, being very hands-off with each other as well.
+
+Notch saw the scene through the lens of Antipolo, the many hundreds running about in the goblin attack, the many apprentice miners killed in the troll's attack, the almost lethal attempt at playing with magic with Goldberg and Millie overseeing them, the walking in the streets with Nathaniel during the Just's attack. Everything coalesced for this moment.
+
+He, along with Shadrach, who had been writing after the apprentice miners were killed by the troll, were children of Antipolo.
+
+If they were older, more ambitious, and cynical, a lust for the vial of power would have emerged in their hearts in light of the protégés' privilege. But they were still young and innocent. Even if they were poor, they only looked up to the protégés.
+
+However, the protégés didn't want a paternalistic relationship with them. They cared more about promoting self-determination, empowerment, and self-respect in the two boys. 
+
+Moving on to the antithesis of the relationship between the protégés and the two boys, many of the protégés' peers were more controlling as their parents and culture were with them in their education and upbringing. Overall, higher privilege created higher expectations to excel. Consequently, being expected to excel led to feelings of duty and possibly even a sense of deservedness and entitlement when their duty wasn't as idealistic as they was told to perceive it, leading to complacency with power. To inquire into this in more general terms, because they were expected to achieve great things, wealthy people might experience entitlement, and so feel like they could do what they want, given that they suffered to get the positions they were prepared for. In contrast, they also experienced a sense of disillusionment when their culminated career didn't meet the ideals ingrained into them during their formative stages. 
+
+Shifting to the peers' relationship with commoners, the peers often heard the most vilifying reports on events concerning everyday people, leading to enmity with the lower classes. Classism was an adverse mechanism in response to the stresses and expectations upon them by society, especially those of the plebeians who idealized the wealthy life. Factors such as a lack of exposure to everyday experiences and people played a role into this. 
+
+Broadening the scope, wealthy individuals were surrounded by society, concepts, and the abstract, as their position in society was most influential. As a result, marrying these societal ideals, concepts, and abstractions with reality often led to frustrations and disillusionment, leading to enmity. In other words, wealthy individuals were in the most abstract, conceptual, and societally idealistic (by the terms of others, society, and people, not by these individuals themselves) position of influence, thus leading to frustration and disillusionment when these didn't match cleanly with reality. Comparing two different sides, some of them might want to be normal as a result, and others might accept that they were superior as society perceived them to be, embodying the self-fulfilling prophesy of the stereotypical arrogant and self-serving member of the higher class—leading to behaviors characterized by elitism, exclusivity, and a lack of empathy. It could also be a facade for the insecurities they felt for not matching up with people's expectations. In conclusion, being able to live a normal life was impossible for these people; thus, each member of the higher class was given an opportunity to cope in their own way and find a path that made sense to them, even if they would never be truly "normal." 
+
+Exploring the concept further, even if wealthy people pretended not to care and chose to "be themselves," it only reinforced that wealthy man or woman image in the minds of the people. Therefore, they would never escape the bondage of what they were supposed to be and what they were not in actuality—the expectations of a controlling mother (society) seeking a genius musician in a normal child (individuals judged and burdened with expectations solely based on their socioeconomic status at birth). Furthermore, ironically, sometimes, making a normal child into a genius only underscored their incapability as a consequence of their specialization in a single aspect and their confusion and helplessness in every other aspect that a normal balanced upbringing would elucidate to them: throwing everything away for a single system or methodology was not practical at all when seen from a well-rounded glance in an ever-evolving world. Though, this perspective was not shared by all, as many would dispute that "the brief duration of human life and [their] limited powers [were] so far from permitting [them] to aspire to such extensive acquisitions, that excellence even in one department [was] within the reach of few, and those individuals most effectually [promoted] the general process, who concentrate their thoughts on a limited portion of the field of inquiry." Anyway, well-adjusted wealthy people learned to accept that theirs was the skill set assigned to them and moved forward anyway. Shifting focus to a poetic phrase, "with great power came great responsibility," not something everyone found easy to accept when it was forced upon them. 
+
+Treading comparatively into a contrasting viewpoint, in an individualistic school of thought, this whole analysis might come off very differently. To explain, many individualistic thinkers would contend that the wealthy were better doing what they felt like doing, even at the cost of common people's wellbeing, as long as it fostered self-determination, empowerment, and self-respect in each individual, which contrasted with utilitarian or collectivist views.
+
+Relating the individualistic viewpoint to a broader sphere, the protégés were making intentional effort here, and even if the internal logic of others might seek a limitedly more rational basis for helping others, the internal logic of the protégés merely ended in kindness and a "just felt like it" response. Enlarging this focus, some people fell in love counterintuitively and helped others with no strings attached, except for a sense of fulfillment at doing something good for the world.
+
+Significantly, the issue was that life was complex and couldn't easily be demarcated into red and blue. 
+
+The complexity of life was also why the two boys were so curious, because they knew that and that nothing made sense intuitively. Hence, everything was counterintuitive, and not every agent was a Rational or omniscient one—with varying knowledge regarding each, differing levels, widely unique considerations, and stubbornly hard-to-incorporate-into-a-model factors. Speaking on a more practical level, arguing for the instantaneous application of extreme measures would result consistently in disruption and unintended consequences.
+
+In conclusion, the complexity of life and human decision-making was why the boys and the protégés were equal in being learners.
+
+Returning to the moment, the protégés and the boys grabbed hands playfully. One of the protégés let Notch hold his hand as a safely cable while leaning backward and even dancing with it and punching it as the protégé kept his arm still, readjusting it every time to catch Notch's punch. During this, he talked with the other protégés positively about Shadrach, who was surrounded by the other protégés watching him write. Shadrach was proudly explaining to them what he had written. The distance between them shortened, because the protégés were friendly, sociable, and permissive when it came to Notch and Shadrach's playfulness.
+
+After the students were done with their archery training, the teacher walked up to the protégés, having worn an attractice attire to receive them. Any help that went toward archery and helping people in these unfocused areas was in her best interests. So even now, she abandoned her pride a bit and became that woman.
+
+The protégés glanced at her once before turning away, except for the protégé who had given the students the rare bows, who now moved forward to meet her appropriately.
+
+She might have taken it that she wasn't that attractive, but the protégés were just too highbrow in their preoccupation, eschewing the need to satisfy themselves with lecherous gazes at women, though to an extent such that attractive women needed to pay extra regard to how they could attract that highbrow side of them.
+
+After the meet-and-greet between the teacher and the rare-bow–giving protégé was completed, the protégés then received the opportunity to move to the nearby city district that directly led to this village area. She informed of the various provisions of that area, such as several inns, open cafeterias, and libraries. Her words were coated with an energizing quality.
+
+She only mentioned the libraries because she knew the protégés could likely connect themselves with people that could give them access to them. She never actually visited a library herself, but she heard very good things about them.
+
+"The world is a cruel place, it is," said one of the protégés, Rishamasi, "I imagine everybody knows that, right?"
+
+"Indeed!" said Croashnalif. "The world has been cruel ever since it was birthed. Like a sunny branch filling up a man's breasts, it becomes so vile that it almost reeks of dust and deterioration."
+
+"Unequivocally!" said Darikadan. "The world is truly unburdened by a needless divisional form of deceit and tearing away. Like summer flies on a morgue, it continues endlessly until it fills up the gauge—*eluvie mons est deductus in æquor.*"
+
+"Right!" said Levonstalo. "With that said, we must press on, my brothers and sisters! Let us be the bearer of good news!"
+
+"Ox," they said. "Ox" was another Vikiyam term for the word "Okay." Now, he was a native of "Vikiya," the nearby city-state, and its adjective form was "Vikiyam."
+
+Notch and Shadrach kept their hands grasping their clothes as they pressed forward, following the protégés in their path toward ambition and domination.
+
+The teacher bowed, her form lowly, but the protégés prevented her from shaming herself by looking away—a cultural trait.
+
+They arrived at the city, their forms divine, as they entered the inn rooms and, except for the two, slept.
+
+Shifting to a metaphorical dissection, the bark ticked like a careful menace roaming about in search of food and water. The light broke through the curtain holes, similar to a red-hatted chief assigning to his young ones orders, curtailing relief for the benefit of coordination. The broken stride of a figure that was attempting to pass through a hallway unnoticed allowed the sun to shine unequivocably, its soundless brass-like shine emanating radiantly like ghosts on a bridge crying holy.
+
+The figure was Notch, and behind him ran Shadrach: the boys were in play.
+
+They reached a point in the inn where a man dragged a person inside a room, a strange scene reaching their noses. They ignored it for now.
+
+As soon as they slept, their hearts woke up to the sound of the same man jumping down the window. They saw the body he dragged and were afraid he would come kill them if he knew they noticed.
+
+They hid and avoided attention, looking at the door that led to the hallway that led to the doors of the inn rooms where the protégés were sleeping.
+
+They could not do a thing but let the night take its close; the morning soon arose.
+
+They had fallen asleep, and when they woke up, their hearts were quick-spun again like a man-puppet being dragged along a stage.
+
+They stood up and put their tender feet on the floor, exiting through the carefully opened door. The sun was bright, shining through the open windows, reminiscent of the window through which the man had jumped down. Their kept their gazes down, as if their heads were covered at the sides and top with three hands. They left the place alongside the protégés, unaware of the man's absence. It scared them to think he was still there.
+
+This was the city.
+
+The quiet noises bit softly onto the streets, elevating the sense of bustling with its bright flashes of magical gleam; every sign indicated that this was a rainforest street.
+
+The boys were prepared, tucked next to the protégés, their hands unaware of where they put them and resting at the teeth, which bit incessantly like a rabbit, afraid knowing that the man could be there any second.
+
+The light shone brightly over the buildings and trees, the shadows filling the space below the canopies, giving the morning a cold kiss.
+
+The boys were excited at the prospect of turning away from this stop of this journey, hoping to get away from the man. They told the protégés, but the protégés didn't know what to do except tell the guard about it. They didn't react too hastily or intensely, not wanting to scare the kids.
+
+The light continued to shine, its glare at the boys persistent, as if it knew whence they came.
+
+The boys readily eshewed it, telling it to back off, not wanting to let the cohesive nature of the light overtake them and crush them.
+
+They drifted away, returning to the village area where the woman was.
+
+The teacher stared at them, being accompanied by one of the protégés, who was a woman. The morning was kind to them, giving them fresh drinks and dinner to eat.
+
+It was like being appreciated by a god.
+
+The boys played with this idea of hope.
+
+Random sounds sauntered with them.
+
+The bow archery training was quick like butter over a hot day, the buttery sensual taste of sweat reached all over the students' bodies, engaging them in the spirit of friendship, for in a sense of togetherness within suffering there abounded opportunity for camaraderie growth.
+
+Returning to a grounded nature, the boys listened well to the discussions, participating as if he was a child of the students, for many of the students were parents.
+
+The protégés were unallowed to join because they were loud and boisterous, but the teacher didn't fault them for it nor did she tell them that they were not allowed to listen anyway. But she did emphasize the need for silence throughout the training session.
+
+The boys were quiet little baby warty pigs, their little feet dangling back and forth underneath their stool chair. The lonesome dirt was given newness by their bare feet and those of the students, protégés, and the teacher.
+
+As soon as the training ended, everyone was happy, their smiles reaching their ears. None were upset, and that gave room for the two boys to look past their past circumstances and gain life in the moment, even if it might feel too relaxing and tranquil.
+
+The sun kept them in suspense, always reminding them of the possibility of death, so they were fine.
+
+The boys weren't made to fight or train. Instead, they experienced what it was like on the side lines. They would soon grow up, so now was a time of exploration and first-time experience. If they were plunged into a hellscape, that would be horrible. So this was a good time for them to be themselves and kids again, after everything they had gone through.
+
+Moving on to a more physical nature, the back and sides of the boys' wrists and hands became wet, as they wiped the sweat off their foreheads, their head, their neck, and the sides of their body. The sweat reached inside their clothes, and they soon began removing them, the moment like a prickly sharp focused embrace. The sweat was very soothing, yet it was very hot.
+
+The protégés assured them that they could take a cold shower.
+
+The boys were excited at the idea.
+
+Later, one of the protégés, a giant muscly man, immediately grabbed a tree and removed them, using magic to plant it somewhere with the roots integrated cleanly, with only the ground where the tree originally was left bare and messy. It was just a message that he was the one a watching goblin had to send the food to.
+
+The goblin walked up to him, and he handed it wrapped sweet rice cake.
+
+The giant protégé shared it with the the protégés. "Mmm! This is so good! Thanks!" In reality, they were just normal people who spoke like everyone else. Their formal, sophisticated language earlier was more so just them joking with each other; though, they did come from formally educated backgrounds.
+
+"What's that?" asked the protégés walking up. 
+
+"Biko, want some?" the giant protégé said.
+
+The protégés began to feast like wolves.
+
+They also saved some for the boys to eat later.
+
+"Oooh, that's really good, doesn't it?" said one of the protégés when he saw one of the protégés getting rice stuck to their face.
+
+The protégés laughed together in response.
+
+When they returned to the boys, the boys were lying on the grass under the shade of the rainforest trees and surrounded by tropical vegetation.
+
+"How are you guys doing?" said one of the protégés.
+
+"Fine," Notch and Shadrach drawled.
+
+The protégés laughed again.
